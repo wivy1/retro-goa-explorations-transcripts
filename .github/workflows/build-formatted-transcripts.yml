@@ -7,6 +7,7 @@ on:
   pull_request:
     branches:
       - main
+      - format-transcript-sections
   workflow_dispatch:
 
 permissions:
