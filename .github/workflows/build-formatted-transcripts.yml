@@ -1,0 +1,71 @@
+name: Build formatted transcript package
+
+on:
+  push:
+    branches:
+      - format-transcript-sections
+  workflow_dispatch:
+
+permissions:
+  contents: read
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+    timeout-minutes: 10
+
+    steps:
+      - name: Check out repository
+        uses: actions/checkout@v4
+
+      - name: Set up Python
+        uses: actions/setup-python@v5
+        with:
+          python-version: "3.12"
+
+      - name: Decode and verify formatter
+        run: |
+          base64 --decode scripts/format_transcripts.py.gz.b64 | gzip --decompress > scripts/format_transcripts.py
+          echo "79c34b1d156499d751f83816fe9a66ee1bff5918cf2a044476a864bbd276ce43  scripts/format_transcripts.py" | sha256sum --check
+          python -m py_compile scripts/format_transcripts.py
+
+      - name: Generate and validate all transcript files
+        run: |
+          python scripts/format_transcripts.py \
+            --source . \
+            --output build/formatted \
+            --zip retro-goa-formatted-transcripts.zip
+
+      - name: Verify package contents
+        run: |
+          python - <<'PY'
+          from pathlib import Path
+          import zipfile
+
+          package = Path("retro-goa-formatted-transcripts.zip")
+          assert package.exists(), "Package was not created"
+          with zipfile.ZipFile(package) as archive:
+              names = [name for name in archive.namelist() if not name.endswith("/")]
+          txt = [name for name in names if name.startswith("formatted/txt/") and name.endswith(".txt")]
+          md = [name for name in names if name.startswith("formatted/markdown/") and name.endswith(".md")]
+          assert len(names) == 330, f"Expected 330 files; found {len(names)}"
+          assert len(txt) == 165, f"Expected 165 TXT files; found {len(txt)}"
+          assert len(md) == 165, f"Expected 165 Markdown files; found {len(md)}"
+          print("Package verified: exactly 165 TXT and 165 Markdown files.")
+          PY
+
+      - name: Upload transcript package
+        uses: actions/upload-artifact@v4
+        with:
+          name: retro-goa-formatted-transcripts
+          path: retro-goa-formatted-transcripts.zip
+          if-no-files-found: error
+          retention-days: 30
+
+      - name: Upload formatting QA report
+        uses: actions/upload-artifact@v4
+        with:
+          name: transcript-formatting-qa
+          path: build/formatting-qa.csv
+          if-no-files-found: error
+          retention-days: 30
