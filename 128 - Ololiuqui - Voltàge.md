@@ -21,7 +21,7 @@ So I'm going to share a few details that were graciously shared by Volker König
 
 And Ololiuqui is a woody-stemmed Mexican vine of the morning glory family, with single seeds that are used especially by the Native Indians for medicinal, narcotic, and religious purposes. So there you go.
 
-So, so yeah, the tracks are largely 1994 to 1996. There's a couple of them you see that say live 1996. And as I said, some of them start. Some of them started off as Factor tracks. Those, you know, I never heard. I never had them at the time as Factor, and I just heard some recently, and I was like, I'm sure that I heard Cooney play that at some of those Equinox parties. Definitely this kind of vibe.
+So, so yeah, the tracks are largely 1994 to 1996. There's a couple of them you see that say live 1996. And as I said, some of them start. Some of them started off as Factor tracks. Those, you know, I never heard. I never had them at the time as Factor, and I just heard some recently, and I was like, I'm sure that I heard Kuni play that at some of those Equinox parties. Definitely this kind of vibe.
 
 So, so Factor was. I'll quote Volker here. Factor was my trance project after quitting Neuwerk. I released on Tunnel Records, but I wanted to do a more goa trance project. And formed Ololiuqui at first alone, and a bit later Oliver came in as a second member. Oliver and I were very intense party people at this time, and this was the foundation for our ideas. Together, we tried to capture what we experienced. Voltage is the attempt to capture the energy and the personal emotions that we experienced and sampled at this time. And Voltage is a journey through a dynamic emotional energy trip on the dance floor.
 
