@@ -1,6 +1,6 @@
-Artist: Crop Circles
-Track: Full Mental Jackpot (Pleiadians Remix)
-Year of release: 1996
+Artist: Crop Circles  
+Track: Full Mental Jackpot (Pleiadians Remix)  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=EuSetH_vBHg
 
 ## Introduction

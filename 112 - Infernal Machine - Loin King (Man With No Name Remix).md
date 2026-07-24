@@ -1,6 +1,6 @@
-Artist: Infernal Machine
-Track: Loin King (Man With No Name Remix)
-Year of release: 1997
+Artist: Infernal Machine  
+Track: Loin King (Man With No Name Remix)  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=--XkDm2lU78
 
 ## Introduction

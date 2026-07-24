@@ -1,6 +1,6 @@
-Artist: ManMadeMan
-Track: Athalon
-Year of release: 1997
+Artist: ManMadeMan  
+Track: Athalon  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=FA5zIBv-ye0
 
 ## Introduction

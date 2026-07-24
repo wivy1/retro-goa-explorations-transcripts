@@ -1,6 +1,6 @@
-Artist: Indoor
-Track: Shiva
-Year of release: 1995
+Artist: Indoor  
+Track: Shiva  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=__crLxsJeJI
 
 ## Introduction

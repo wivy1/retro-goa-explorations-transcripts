@@ -1,6 +1,6 @@
-Artist: Killing Joke
-Track: Jana (Dragonfly Mix)
-Year of release: 1994
+Artist: Killing Joke  
+Track: Jana (Dragonfly Mix)  
+Year of release: 1994  
 Episode URL: https://www.youtube.com/watch?v=TbdX5mPG5fw
 
 ## Introduction

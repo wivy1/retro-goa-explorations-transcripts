@@ -1,6 +1,6 @@
-Artist: Hallucinogen
-Track: LSD
-Year of release: 1994
+Artist: Hallucinogen  
+Track: LSD  
+Year of release: 1994  
 Episode URL: https://www.youtube.com/watch?v=uGNuM8fInCI
 
 ## Introduction

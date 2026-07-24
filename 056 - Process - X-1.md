@@ -1,6 +1,6 @@
-Artist: Process
-Track: X-1
-Year of release: 1996
+Artist: Process  
+Track: X-1  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=1VGoay6kUqU
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Byte 1
-Track: Byte 1
-Year of release: 1996
+Artist: Byte 1  
+Track: Byte 1  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=g-J6M7c66Uo
 
 ## Introduction

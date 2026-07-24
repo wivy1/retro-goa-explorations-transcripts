@@ -1,6 +1,6 @@
-Artist: Juno Reactor
-Track: Guardian Angel
-Year of release: 1994
+Artist: Juno Reactor  
+Track: Guardian Angel  
+Year of release: 1994  
 Episode URL: https://www.youtube.com/watch?v=EY7_qMUoYAU
 
 ## Introduction

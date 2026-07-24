@@ -1,6 +1,6 @@
-Artist: Slinky Nuns
-Track: Shitty Stick (Better Than A Poke In The Eye With A)
-Year of release: 1996
+Artist: Slinky Nuns  
+Track: Shitty Stick (Better Than A Poke In The Eye With A)  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=dWq25Wao8SI
 
 ## Introduction

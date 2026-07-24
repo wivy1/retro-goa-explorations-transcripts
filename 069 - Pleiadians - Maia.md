@@ -1,6 +1,6 @@
-Artist: Pleiadians
-Track: Maia
-Year of release: 1997
+Artist: Pleiadians  
+Track: Maia  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=X4cJCdRR5nY
 
 ## Introduction

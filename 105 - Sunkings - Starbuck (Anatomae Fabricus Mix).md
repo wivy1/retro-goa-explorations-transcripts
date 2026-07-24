@@ -1,6 +1,6 @@
-Artist: Sunkings
-Track: Starbuck (Anatomae Fabricus Mix)
-Year of release: 1997
+Artist: Sunkings  
+Track: Starbuck (Anatomae Fabricus Mix)  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=xDfsK01PvX8
 
 ## Introduction

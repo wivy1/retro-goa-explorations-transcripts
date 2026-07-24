@@ -1,6 +1,6 @@
-Artist: Sheyba
-Track: Into The 4th Dimension
-Year of release: 1995
+Artist: Sheyba  
+Track: Into The 4th Dimension  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=JFEyAVyu8OE
 
 ## Introduction

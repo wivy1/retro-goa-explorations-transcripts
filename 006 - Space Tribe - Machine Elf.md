@@ -1,6 +1,6 @@
-Artist: Space Tribe
-Track: Machine Elf
-Year of release: 1994
+Artist: Space Tribe  
+Track: Machine Elf  
+Year of release: 1994  
 Episode URL: https://www.youtube.com/watch?v=_eggJMbx_IE
 
 ## Introduction

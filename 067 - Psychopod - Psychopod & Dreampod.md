@@ -1,6 +1,6 @@
-Artist: Psychopod
-Track: Psychopod & Dreampod
-Year of release: 1996
+Artist: Psychopod  
+Track: Psychopod & Dreampod  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=wMJh9ihelWM
 
 ## Introduction

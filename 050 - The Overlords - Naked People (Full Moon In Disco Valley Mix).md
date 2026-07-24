@@ -1,6 +1,6 @@
-Artist: The Overlords
-Track: Naked People (Full Moon In Disco Valley Mix)
-Year of release: 1995
+Artist: The Overlords  
+Track: Naked People (Full Moon In Disco Valley Mix)  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=IyOEcqQn6Cs
 
 ## Introduction

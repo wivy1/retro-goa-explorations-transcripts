@@ -1,6 +1,6 @@
-Artist: Tristan
-Track: Close Zen Counters
-Year of release: 1996
+Artist: Tristan  
+Track: Close Zen Counters  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=tjZOWU3FhS4
 
 ## Introduction

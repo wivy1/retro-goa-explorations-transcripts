@@ -1,6 +1,6 @@
-Artist: Psychopod
-Track: Friagram
-Year of release: 1997
+Artist: Psychopod  
+Track: Friagram  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=i0uWcC2j3mI
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Total Eclipse
-Track: 10 Years Of Trance
-Year of release: 1999
+Artist: Total Eclipse  
+Track: 10 Years Of Trance  
+Year of release: 1999  
 Episode URL: https://www.youtube.com/watch?v=fw3HXkWOAQI
 
 ## Introduction

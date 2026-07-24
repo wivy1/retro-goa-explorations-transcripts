@@ -1,6 +1,6 @@
-Artist: Etnica
-Track: Astral Way
-Year of release: 1995
+Artist: Etnica  
+Track: Astral Way  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=p3MKTqG4CZ8
 
 ## Introduction

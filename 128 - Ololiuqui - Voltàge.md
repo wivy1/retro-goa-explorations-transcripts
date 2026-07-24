@@ -1,6 +1,6 @@
-Artist: Ololiuqui
-Track: Voltàge
-Year of release: 1996
+Artist: Ololiuqui  
+Track: Voltàge  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=dRTuqI_IC7I
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Fools And Tools
-Track: Hundreds Of Sunsets
-Year of release: 1997
+Artist: Fools And Tools  
+Track: Hundreds Of Sunsets  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=42I15Svi2jE
 
 ## Introduction

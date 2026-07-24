@@ -1,6 +1,6 @@
-Artist: Transwave
-Track: Absolum
-Year of release: 1996
+Artist: Transwave  
+Track: Absolum  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=adEp-dxZTb4
 
 ## Introduction

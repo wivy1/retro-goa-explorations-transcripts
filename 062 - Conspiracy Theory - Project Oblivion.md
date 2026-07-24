@@ -1,6 +1,6 @@
-Artist: Conspiracy Theory
-Track: Project Oblivion
-Year of release: 1997
+Artist: Conspiracy Theory  
+Track: Project Oblivion  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=sg5X0PSWnik
 
 ## Introduction

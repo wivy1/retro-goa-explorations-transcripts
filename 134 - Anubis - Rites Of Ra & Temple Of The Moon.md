@@ -1,6 +1,6 @@
-Artist: Anubis
-Track: Rites Of Ra & Temple Of The Moon
-Year of release: 1997
+Artist: Anubis  
+Track: Rites Of Ra & Temple Of The Moon  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=5FSvI640sJQ
 
 ## Introduction

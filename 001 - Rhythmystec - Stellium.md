@@ -1,6 +1,6 @@
-Artist: Rhythmystec
-Track: Stellium
-Year of release: 1995
+Artist: Rhythmystec  
+Track: Stellium  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=sXLkPt0yKx0
 
 ## Introduction

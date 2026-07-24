@@ -1,6 +1,6 @@
-Artist: Cydonia
-Track: Mind Hunter
-Year of release: 1997
+Artist: Cydonia  
+Track: Mind Hunter  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=YUHmQZZVGk4
 
 ## Introduction

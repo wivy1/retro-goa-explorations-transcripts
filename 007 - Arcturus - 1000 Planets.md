@@ -1,6 +1,6 @@
-Artist: Arcturus
-Track: 1000 Planets
-Year of release: 1994
+Artist: Arcturus  
+Track: 1000 Planets  
+Year of release: 1994  
 Episode URL: https://www.youtube.com/watch?v=WofGZzKk0r4
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Metal Spark
-Track: Technosaur
-Year of release: 1998
+Artist: Metal Spark  
+Track: Technosaur  
+Year of release: 1998  
 Episode URL: https://www.youtube.com/watch?v=YptnR8xhCpE
 
 ## Introduction

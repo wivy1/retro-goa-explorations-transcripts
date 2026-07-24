@@ -1,6 +1,6 @@
-Artist: The Infinity Project
-Track: Binary Neuronaut
-Year of release: 1995
+Artist: The Infinity Project  
+Track: Binary Neuronaut  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=wxKxWNybMt8
 
 ## Introduction

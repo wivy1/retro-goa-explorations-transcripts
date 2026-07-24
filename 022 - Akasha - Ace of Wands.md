@@ -1,6 +1,6 @@
-Artist: Akasha
-Track: Ace of Wands
-Year of release: 1994
+Artist: Akasha  
+Track: Ace of Wands  
+Year of release: 1994  
 Episode URL: https://www.youtube.com/watch?v=h8-ul62cq1c
 
 ## Introduction

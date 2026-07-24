@@ -1,6 +1,6 @@
-Artist: The Delta
-Track: As A Child I Could Walk On The Ceiling
-Year of release: 1997
+Artist: The Delta  
+Track: As A Child I Could Walk On The Ceiling  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=uGnQThEj3TA
 
 ## Introduction

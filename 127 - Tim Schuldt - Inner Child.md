@@ -1,6 +1,6 @@
-Artist: Tim Schuldt
-Track: Inner Child
-Year of release: 1997
+Artist: Tim Schuldt  
+Track: Inner Child  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=MBvBd9s_E-w
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: The Deviant
-Track: Dawn Of Epsilon
-Year of release: 1997
+Artist: The Deviant  
+Track: Dawn Of Epsilon  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=4G2VnzEu_wg
 
 ## Introduction

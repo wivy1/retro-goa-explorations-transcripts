@@ -1,6 +1,6 @@
-Artist: DJ Cosmix & Etnica
-Track: Kumba Mela
-Year of release: 1995
+Artist: DJ Cosmix & Etnica  
+Track: Kumba Mela  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=bs5QxIMCjCM
 
 ## Introduction

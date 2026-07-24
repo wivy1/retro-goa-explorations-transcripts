@@ -1,6 +1,6 @@
-Artist: Total Eclipse
-Track: Partycles
-Year of release: 1997
+Artist: Total Eclipse  
+Track: Partycles  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=YT4UFcEHjuQ
 
 ## Introduction

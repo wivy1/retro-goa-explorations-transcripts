@@ -1,6 +1,6 @@
-Artist: Hallucinogen
-Track: Soothsayer (The Lysurgeon Warning Remix)
-Year of release: 1996
+Artist: Hallucinogen  
+Track: Soothsayer (The Lysurgeon Warning Remix)  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=GfSlE-7RrCA
 
 ## Introduction

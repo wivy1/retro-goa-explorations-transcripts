@@ -1,6 +1,6 @@
-Artist: Hallucinogen
-Track: Magik
-Year of release: 1998
+Artist: Hallucinogen  
+Track: Magik  
+Year of release: 1998  
 Episode URL: https://www.youtube.com/watch?v=hGKzPnRlaCs
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Total Eclipse
-Track: Transparent Mind
-Year of release: 1994
+Artist: Total Eclipse  
+Track: Transparent Mind  
+Year of release: 1994  
 Episode URL: https://www.youtube.com/watch?v=Hok6TrZC3Fs
 
 ## Introduction

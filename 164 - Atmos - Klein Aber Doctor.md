@@ -1,6 +1,6 @@
-Artist: Atmos
-Track: Klein Aber Doctor
-Year of release: 1998
+Artist: Atmos  
+Track: Klein Aber Doctor  
+Year of release: 1998  
 Episode URL: https://www.youtube.com/watch?v=v-W2v1z6x2c
 
 ## Introduction

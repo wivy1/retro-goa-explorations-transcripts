@@ -1,6 +1,6 @@
-Artist: Johann
-Track: Lifes Games
-Year of release: 1997
+Artist: Johann  
+Track: Lifes Games  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=zv5hWjysoVY
 
 ## Introduction

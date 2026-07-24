@@ -1,6 +1,6 @@
-Artist: Doof
-Track: Destination Bom (Alternate Mix)
-Year of release: 1996
+Artist: Doof  
+Track: Destination Bom (Alternate Mix)  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=nGIkRxh3xiw
 
 ## Introduction

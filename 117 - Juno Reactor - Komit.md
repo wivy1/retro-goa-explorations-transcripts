@@ -1,6 +1,6 @@
-Artist: Juno Reactor
-Track: Komit
-Year of release: 1997
+Artist: Juno Reactor  
+Track: Komit  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=-a_-fnGYhi4
 
 ## Introduction

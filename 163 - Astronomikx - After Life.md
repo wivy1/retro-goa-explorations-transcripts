@@ -1,6 +1,6 @@
-Artist: Astronomikx
-Track: After Life
-Year of release: 1999
+Artist: Astronomikx  
+Track: After Life  
+Year of release: 1999  
 Episode URL: https://www.youtube.com/watch?v=Nkh2Q3gR-VI
 
 ## Introduction

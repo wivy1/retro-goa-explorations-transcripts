@@ -1,6 +1,6 @@
-Artist: Koxbox
-Track: Fuel On
-Year of release: 1995
+Artist: Koxbox  
+Track: Fuel On  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=Mra9fEZboGE
 
 ## Introduction

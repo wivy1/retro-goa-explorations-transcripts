@@ -1,6 +1,6 @@
-Artist: Cyberjam
-Track: Alphaflight
-Year of release: 1995
+Artist: Cyberjam  
+Track: Alphaflight  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=qj-1Ot0Tizs
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Crop Circles
-Track: Full Mental Jackpot
-Year of release: 1996
+Artist: Crop Circles  
+Track: Full Mental Jackpot  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=Nx0nDSdF7h4
 
 ## Introduction

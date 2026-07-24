@@ -1,6 +1,6 @@
-Artist: Doof
-Track: Double Dragons (Trance Edit)
-Year of release: 1994
+Artist: Doof  
+Track: Double Dragons (Trance Edit)  
+Year of release: 1994  
 Episode URL: https://www.youtube.com/watch?v=Ci36HQGU0SA
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: The Delta
-Track: Travelling at the Speed of Thought
-Year of release: 1997
+Artist: The Delta  
+Track: Travelling at the Speed of Thought  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=K1RWF7drwTM
 
 ## Introduction

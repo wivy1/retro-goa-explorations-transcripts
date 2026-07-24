@@ -1,6 +1,6 @@
-Artist: Spectral
-Track: Moonstone
-Year of release: 1995
+Artist: Spectral  
+Track: Moonstone  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=_DeBpZVv2mQ
 
 ## Introduction

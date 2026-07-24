@@ -1,6 +1,6 @@
-Artist: Juno Reactor
-Track: High Energy Protons
-Year of release: 1993
+Artist: Juno Reactor  
+Track: High Energy Protons  
+Year of release: 1993  
 Episode URL: https://www.youtube.com/watch?v=w_na0at-XhU
 
 ## Introduction

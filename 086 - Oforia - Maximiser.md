@@ -1,6 +1,6 @@
-Artist: Oforia
-Track: Maximiser
-Year of release: 1998
+Artist: Oforia  
+Track: Maximiser  
+Year of release: 1998  
 Episode URL: https://www.youtube.com/watch?v=9TK_vd_LArc
 
 ## Introduction

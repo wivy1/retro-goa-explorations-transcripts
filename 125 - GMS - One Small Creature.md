@@ -1,6 +1,6 @@
-Artist: GMS
-Track: One Small Creature
-Year of release: 1997
+Artist: GMS  
+Track: One Small Creature  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=DMEZ8fXCpBk
 
 ## Introduction

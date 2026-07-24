@@ -1,6 +1,6 @@
-Artist: Fools And Tools
-Track: Itchy And Scratchy
-Year of release: 1997
+Artist: Fools And Tools  
+Track: Itchy And Scratchy  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=FGOGycA3UX4
 
 ## Introduction

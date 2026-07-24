@@ -1,6 +1,6 @@
-Artist: Aztec & LFOids
-Track: Medusa (Core Mix)
-Year of release: 1998
+Artist: Aztec & LFOids  
+Track: Medusa (Core Mix)  
+Year of release: 1998  
 Episode URL: https://www.youtube.com/watch?v=uy6Wos7OHas
 
 ## Introduction

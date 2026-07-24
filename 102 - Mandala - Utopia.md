@@ -1,6 +1,6 @@
-Artist: Mandala
-Track: Utopia
-Year of release: 1997
+Artist: Mandala  
+Track: Utopia  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=XaKt2B_u2SE
 
 ## Introduction

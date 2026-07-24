@@ -1,6 +1,6 @@
-Artist: X-Dream
-Track: Brain Forest
-Year of release: 1997
+Artist: X-Dream  
+Track: Brain Forest  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=JgIjsZLalr8
 
 ## Introduction

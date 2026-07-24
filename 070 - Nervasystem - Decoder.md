@@ -1,6 +1,6 @@
-Artist: Nervasystem
-Track: Decoder
-Year of release: 1997
+Artist: Nervasystem  
+Track: Decoder  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=at4AMFKD2uM
 
 ## Introduction

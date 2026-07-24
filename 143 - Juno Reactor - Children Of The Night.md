@@ -1,6 +1,6 @@
-Artist: Juno Reactor
-Track: Children Of The Night
-Year of release: 1997
+Artist: Juno Reactor  
+Track: Children Of The Night  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=qODlGOUmzx4
 
 ## Introduction

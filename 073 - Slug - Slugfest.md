@@ -1,6 +1,6 @@
-Artist: Slug
-Track: Slugfest
-Year of release: 1996
+Artist: Slug  
+Track: Slugfest  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=9EKEbZuELrc
 
 ## Introduction

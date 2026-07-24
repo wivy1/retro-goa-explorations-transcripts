@@ -1,6 +1,6 @@
-Artist: X-Dream
-Track: Telegram
-Year of release: 1998
+Artist: X-Dream  
+Track: Telegram  
+Year of release: 1998  
 Episode URL: https://www.youtube.com/watch?v=EGyT7JYy-3k
 
 ## Introduction

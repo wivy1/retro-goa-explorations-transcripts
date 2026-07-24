@@ -1,6 +1,6 @@
-Artist: Excess Head
-Track: Another Planet
-Year of release: 1997
+Artist: Excess Head  
+Track: Another Planet  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=1k-XbkfMl2k
 
 ## Introduction

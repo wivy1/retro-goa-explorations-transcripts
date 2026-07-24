@@ -1,6 +1,6 @@
-Artist: Pleiadians
-Track: Asterope
-Year of release: 1996
+Artist: Pleiadians  
+Track: Asterope  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=8cruwDB2tTQ
 
 ## Introduction

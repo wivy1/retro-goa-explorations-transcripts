@@ -1,6 +1,6 @@
-Artist: X-Dream
-Track: Create Your Own Happiness
-Year of release: 1995–1996
+Artist: X-Dream  
+Track: Create Your Own Happiness  
+Year of release: 1995–1996  
 Episode URL: https://www.youtube.com/watch?v=qZQDRoXSi5A
 
 ## Introduction

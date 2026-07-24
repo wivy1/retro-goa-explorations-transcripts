@@ -1,6 +1,6 @@
-Artist: Voodoo People
-Track: Quadsep
-Year of release: 1995
+Artist: Voodoo People  
+Track: Quadsep  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=Uv3S5cm-ALw
 
 ## Introduction

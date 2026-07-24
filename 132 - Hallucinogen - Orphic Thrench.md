@@ -1,6 +1,6 @@
-Artist: Hallucinogen
-Track: Orphic Thrench
-Year of release: 1995
+Artist: Hallucinogen  
+Track: Orphic Thrench  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=T43QCudVxkc
 
 ## Introduction

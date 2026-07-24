@@ -1,6 +1,6 @@
-Artist: Quid
-Track: Code S9
-Year of release: 1996
+Artist: Quid  
+Track: Code S9  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=KsYTm-q93WI
 
 ## Introduction

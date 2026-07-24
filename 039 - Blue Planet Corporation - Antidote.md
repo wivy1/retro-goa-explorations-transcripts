@@ -1,6 +1,6 @@
-Artist: Blue Planet Corporation
-Track: Antidote
-Year of release: 1995
+Artist: Blue Planet Corporation  
+Track: Antidote  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=j8bYBa9jH8s
 
 ## Introduction

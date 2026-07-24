@@ -1,6 +1,6 @@
-Artist: Juno Reactor
-Track: Jardin De Cecile (Man With No Name Remix)
-Year of release: 1998
+Artist: Juno Reactor  
+Track: Jardin De Cecile (Man With No Name Remix)  
+Year of release: 1998  
 Episode URL: https://www.youtube.com/watch?v=-LGxTzsiox0
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: The Delta
-Track: Delta Skelter
-Year of release: 1997
+Artist: The Delta  
+Track: Delta Skelter  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=iF2WQo_GuYc
 
 ## Introduction

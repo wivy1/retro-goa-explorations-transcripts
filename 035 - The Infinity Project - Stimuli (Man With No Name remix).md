@@ -1,6 +1,6 @@
-Artist: The Infinity Project
-Track: Stimuli (Man With No Name Remix)
-Year of release: 1995
+Artist: The Infinity Project  
+Track: Stimuli (Man With No Name Remix)  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=6eRN9xQ1X14
 
 ## Introduction

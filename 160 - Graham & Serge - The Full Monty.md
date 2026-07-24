@@ -1,6 +1,6 @@
-Artist: Graham & Serge
-Track: The Full Monty
-Year of release: 1995
+Artist: Graham & Serge  
+Track: The Full Monty  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=CxeN0uLvPHA
 
 ## Introduction

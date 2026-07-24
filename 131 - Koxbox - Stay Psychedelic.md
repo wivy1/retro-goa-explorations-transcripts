@@ -1,6 +1,6 @@
-Artist: Koxbox
-Track: Stay Psychedelic
-Year of release: 1997
+Artist: Koxbox  
+Track: Stay Psychedelic  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=eYbzQ834meQ
 
 ## Introduction

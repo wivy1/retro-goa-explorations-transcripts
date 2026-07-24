@@ -1,6 +1,6 @@
-Artist: Prana
-Track: Pneumatic
-Year of release: 1995
+Artist: Prana  
+Track: Pneumatic  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=Qwkb3RUFq7s
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Astral Projection
-Track: Let There Be Light
-Year of release: 1995
+Artist: Astral Projection  
+Track: Let There Be Light  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=65UqQVX3bs0
 
 ## Introduction

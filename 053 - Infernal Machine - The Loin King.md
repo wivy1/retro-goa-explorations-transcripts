@@ -1,6 +1,6 @@
-Artist: Infernal Machine
-Track: The Loin King
-Year of release: 1996
+Artist: Infernal Machine  
+Track: The Loin King  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=eeH3BHhIMxw
 
 ## Introduction

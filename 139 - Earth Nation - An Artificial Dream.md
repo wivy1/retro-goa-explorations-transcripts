@@ -1,6 +1,6 @@
-Artist: Earth Nation
-Track: An Artificial Dream
-Year of release: 1995
+Artist: Earth Nation  
+Track: An Artificial Dream  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=kF0m3rqpkLk
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Prana
-Track: Boundless
-Year of release: 1997
+Artist: Prana  
+Track: Boundless  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=GG7FGzx_d20
 
 ## Introduction

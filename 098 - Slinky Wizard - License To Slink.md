@@ -1,6 +1,6 @@
-Artist: Slinky Wizard
-Track: Licenced To Slink
-Year of release: 1997
+Artist: Slinky Wizard  
+Track: Licenced To Slink  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=8KIdPJSztGw
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Etnica
-Track: Plastic & Floating Universe
-Year of release: 1996
+Artist: Etnica  
+Track: Plastic & Floating Universe  
+Year of release: 1996  
 Episode URL: https://www.youtube.com/watch?v=c10V53QAq1U
 
 ## Introduction

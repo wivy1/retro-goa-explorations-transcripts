@@ -1,6 +1,6 @@
-Artist: Hallucinogen
-Track: Snakey Shaker
-Year of release: 1997
+Artist: Hallucinogen  
+Track: Snakey Shaker  
+Year of release: 1997  
 Episode URL: https://www.youtube.com/watch?v=pJZFXidmWzw
 
 ## Introduction

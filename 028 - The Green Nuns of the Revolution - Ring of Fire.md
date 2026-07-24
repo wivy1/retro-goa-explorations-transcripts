@@ -1,6 +1,6 @@
-Artist: The Green Nuns of the Revolution
-Track: Ring of Fire
-Year of release: 1995
+Artist: The Green Nuns of the Revolution  
+Track: Ring of Fire  
+Year of release: 1995  
 Episode URL: https://www.youtube.com/watch?v=VcreMZQBf7I
 
 ## Introduction
