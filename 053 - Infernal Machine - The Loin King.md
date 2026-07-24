@@ -5,9 +5,9 @@ Episode URL: https://www.youtube.com/watch?v=eeH3BHhIMxw
 
 ## Introduction
 
-Hey there, goa fans! Mark DJ Solitare here with episode 53 of Retro Goa Explorations, my weekly series in which I present in each episode one of my favorite tracks from the 1990s goa trance psychedelic dance movement. And with this episode, we are officially moving into the second year of episodes, and moving into my third year in this scene. So the first 26 episodes focused on tracks that I had come across in the 94-95 season, my first year exposed to this musical art form, and the second 26 episodes, so from I guess 27 to 52, we looked at tracks that I first came across in '95 to '96 thereabouts, roughly. Now we are starting off this '96 season, which was a pivotal time for the scene and also for me.
+Hey there, goa fans! Mark DJ Solitare here with episode 53 of Retro Goa Explorations, my weekly series in which I present in each episode one of my favorite tracks from the 1990s goa trance psychedelic dance movement. And with this episode, we are officially moving into the second year of episodes, and moving into my third year in this scene. So the first 26 episodes focused on tracks that I had come across in the '94-'95 season, my first year exposed to this musical art form, and the second 26 episodes, so from I guess 27 to 52, we looked at tracks that I first came across in '95 to '96 thereabouts, roughly. Now we are starting off this '96 season, which was a pivotal time for the scene and also for me.
 
-I left Japan in July '96 to spend a few weeks in Canada, and then at the beginning of September 96, I moved to London to be closer to Ground Zero of the what I thought was going to be Ground Zero of the musical production and party side of this scene. More on all of that possibly today, but definitely in future episodes.
+I left Japan in July '96 to spend a few weeks in Canada, and then at the beginning of September '96, I moved to London to be closer to Ground Zero of the what I thought was going to be Ground Zero of the musical production and party side of this scene. More on all of that possibly today, but definitely in future episodes.
 
 So, so the track that I'm featuring today has a lot of backstory because it relates to a whole event, and there's a whole lot of story here. So I've been hearing feedback from folks saying they love stories. Well, there's multiple stories that will sort of tie in the whole context of this particular one, and I'm quite excited to share this. So I've been waiting for a while for this one because I wanted to present it in context.
 
@@ -27,13 +27,13 @@ So of course, I took this flyer, and when I got to London a couple of days later
 
 So, but yeah, I did that. I called up a friend of mine who, from Japan, who was then studying at university in Florida. He was a big Trans party guy, and told him about it. So he decided to fly up from Florida to come to this party as well. So it was, you know, there was no Facebook messaging, there was no texting. It was, you know, a lot more logistical arrangements. He gave me the phone number of his friend in New York so that I could contact him when it was there. And yada yada. It was, anyway. It was a whole thing.
 
-So we all met up, went to this science museum, Liberty Science Center. Okay, so I mean, try to imagine that you're going to a psychedelic trance, you know, goa style party in a science museum. Is this not what we have all dreamed of? Yes, it was. It was absolutely Astounding.
+So we all met up, went to this science museum, Liberty Science Center. Okay, so I mean, try to imagine that you're going to a psychedelic trance, you know, goa style party in a science museum. Is this not what we have all dreamed of? Yes, it was. It was absolutely astounding.
 
-The goa area was in a sort of it was all carpeted. There was water fountains. It was all like you know nice backlighting. I mean, it was it was fairly well lit. And you know there was this four story atrium. So basically, you were you know you could see the other floors sort of went around this whole central dance area. So it was just like this super high ceiling and oh my goodness, it was absolutely jaw dropping.
+The goa area was in a sort of it was all carpeted. There was water fountains. It was all like you know nice backlighting. I mean, it was fairly well lit. And you know there was this four story atrium. So basically, you were you know you could see the other floors sort of went around this whole central dance area. So it was just like this super high ceiling and oh my goodness, it was absolutely jaw dropping.
 
-Now, the Americans who were there were all used to, you know, more breakbeedy kind of breakdance kind, you know, sort of stuff, and they were all you know in circles where you know one person would like dance in the middle of the circle and everybody be Watching and I was there in my fluoro stuff and I would just like dance right through the circle and you know let's all just be was really on the mission of everybody's having their own story and you know we're engaging with each other but anyway it was pretty wild
+Now, the Americans who were there were all used to, you know, more breakbeedy kind of breakdance kind, you know, sort of stuff, and they were all you know in circles where you know one person would like dance in the middle of the circle and everybody be watching and I was there in my fluoro stuff and I would just like dance right through the circle and you know let's all just be was really on the mission of everybody's having their own story and you know we're engaging with each other but anyway it was pretty wild
 
-So I got there when I missed the first that I guess between I think it was between eleven and twelve so I think it was eleven to Six in the morning, so I'm pretty sure it ended right at six. When it would have been, the first part would have been Chris Decker. Then there was Green Nuns, so I came in for that. Recognized them and the tunes.
+So I got there when I missed the first that I guess between I think it was between eleven and twelve so I think it was eleven to six in the morning, so I'm pretty sure it ended right at six. When it would have been, the first part would have been Chris Decker. Then there was Green Nuns, so I came in for that. Recognized them and the tunes.
 
 After that, just going to look at the lineup here and get my reminder. But it's not the order that they played in here. So after Green Nuns was Transwave. Wave. Then there was Doof. After Doof was Hallucinogen. Then was Mark Allen, and then was Tsuyoshi. They only had one hour each.
 
@@ -41,41 +41,41 @@ Now I am kind of not a big proponent of this. What's going on now with this tend
 
 So there's a lot that I remember from this party. Surprisingly, but also not surprisingly, what I recall specifically was Transwave was playing some of their new album, which had not yet come out. So it was stuff that I didn't recognize. Nick Barber of Doof dancing around with his shirt off, was and very sweaty, and you know it was hilarious. And then Simon was there with his blue dragonfly shirt, even though Twisted Records has that was just starting out.
 
-And I remember a bunch. We're gonna we're gonna be hearing some of the tracks that I remember from this party. This was the first time that I heard Gamma Goblins, and that I heard the Snarling (Remix). That I could recognize, I was like, wait a second, I don't recognize this version.
+And I remember a bunch. We're gonna be hearing some of the tracks that I remember from this party. This was the first time that I heard Gamma Goblins, and that I heard the Snarling (Remix). That I could recognize, I was like, wait a second, I don't recognize this version.
 
-Then there was, I remember in Mark Allen's set. So he was the second to last set, and he played that track with a sample that I played at ZNA in 2022. The Real question now is, can we make it back to Earth? By Satori, and the place exploded with them.
+Then there was, I remember in Mark Allen's set. So he was the second to last set, and he played that track with a sample that I played at ZNA in 2022. The real question now is, can we make it back to Earth? By Satori, and the place exploded with them.
 
 So all of this is building up, right? I mean, the energy is just ramping up with each one, and then Tsuyoshi is on. I'm getting goosebumps right now, and then Tsuyoshi comes on, and he just drops all this stuff. Certainly, I've never heard, and just Blows the lid off the place. All stuff that I would come to recognize in subsequent weeks as they would come to be released.
 
-So X-1 by Process, Psychopod by Psychopod, Boundless by Prana. You know, I would retroactively say, "Oh, now I remember that." So I remember, especially, I remember those melting sounds from the Psychopod track coming in near the end,
+So "X-1" by Process, "Psychopod" by Psychopod, "Boundless" by Prana. You know, I would retroactively say, "Oh, now I remember that." So I remember, especially, I remember those melting sounds from the "Psychopod" track coming in near the end,
 
-And then near the end of the party, I'm there with my camera different times, and I I had two cameras. I had a 3D camera, which was this great Japanese thing where it would take three different photos, and then you could get them developed and superimposed one over the other. And so, um, I've got some very cool photos from there.
+And then near the end of the party, I'm there with my camera different times, and I had two cameras. I had a 3D camera, which was this great Japanese thing where it would take three different photos, and then you could get them developed and superimposed one over the other. And so, um, I've got some very cool photos from there.
 
-Uh, and then I also had my regular camera, and I Happened to have my regular camera and just be in the right place when Simon Posford goes up to Tsuyoshi with a DAT and offers him a track that he hadn't played ever, that he had written before the set, and before the party for the party that hadn't included in his party. It was untitled, just said "Return to the Source" on the DAT,
+Uh, and then I also had my regular camera, and I happened to have my regular camera and just be in the right place when Simon Posford goes up to Tsuyoshi with a DAT and offers him a track that he hadn't played ever, that he had written before the set, and before the party for the party that hadn't included in his party. It was untitled, just said "Return to the Source" on the DAT,
 
-And I got this photo of them lining up the track, which is just for me it looks kind of historical. I mean, it was really quite a moment. And he puts on the track that would later be known as The Loin King, and that's the track that ended the party.
+And I got this photo of them lining up the track, which is just for me it looks kind of historical. I mean, it was really quite a moment. And he puts on the track that would later be known as "The Loin King", and that's the track that ended the party.
 
 And I'm getting emotional. I mean, it was really something. I mean, really, it was the impression to see North Americans getting it and being completely blown, having everything blown open, and the cheers afterwards. I mean, it was really something. And just the sounds, you know.
 
 So when we listen to it, you know, imagine this ending a party and ending, you know, the first experience that people have had, and having had that whole progression, it was astounding.
 
-So this track would later come to be issued as a release by the Infernal Machine. And the Infernal Machine was a project, unfortunately, fairly short-lived, with Dick Trevor and Simon Posford. So Dick from the Green Nuns and Simon, and the flip side of it was The Loin Sleeps Tonight, which you know was definitely the two of them, which I first heard at a Matsuri party. I'll be talking about it then in October of '96.
+So this track would later come to be issued as a release by the Infernal Machine. And the Infernal Machine was a project, unfortunately, fairly short-lived, with Dick Trevor and Simon Posford. So Dick from the Green Nuns and Simon, and the flip side of it was "The Loin Sleeps Tonight", which you know was definitely the two of them, which I first heard at a Matsuri party. I'll be talking about it then in October of '96.
 
-But I guess you know they wanted to put out that one track that Simon And Dick had done, and they want to put this other track out, so they put this on the flip side. Now, when I checked in with Simon just before filming this, he thought that he had done this with Dick, but I remember him telling me previously that it was a solo one.
+But I guess you know they wanted to put out that one track that Simon and Dick had done, and they want to put this other track out, so they put this on the flip side. Now, when I checked in with Simon just before filming this, he thought that he had done this with Dick, but I remember him telling me previously that it was a solo one.
 
 And when you look at the label, it very specifically says that this track is with Walter Ego. So Walter Ego was Simon's alter ego, and Muttley is added to the credits for the other side. Muttley was a cartoon character, an alter ego for Dick. So this is a solo track.
 
-So technically, in a way, it's a Hallucinogen track because it's a Simon solo. We should add also that going to be guessing now because I have to remember, but I'm pretty sure it's Jiggle of the Sphinx That Simon wrote with Dick, also. So there is a track on a second Hallucinogen album, on *The Lone Deranger*, which Simon wrote with Dick. That's the one that's coming to me right now. I think it is that one. But apologies if it's not. I'll check after filming.
+So technically, in a way, it's a Hallucinogen track because it's a Simon solo. We should add also that going to be guessing now because I have to remember, but I'm pretty sure it's Jiggle of the Sphinx that Simon wrote with Dick, also. So there is a track on a second Hallucinogen album, on *The Lone Deranger*, which Simon wrote with Dick. That's the one that's coming to me right now. I think it is that one. But apologies if it's not. I'll check after filming.
 
 And so this is basically a Hallucinogen track, but you know it's um it's officially called Infernal Machine, so there we go.
 
-And The Loin King, you know, this was just a year or two after the Lion King movie was out. Loining is kind of a British slang and perhaps other slang for you know going and you know checking out girls or trying to get girls. So you know, not necessarily Related to the musical content, but a fun title as we often get with Maestro Posford.
+And "The Loin King", you know, this was just a year or two after the Lion King movie was out. Loining is kind of a British slang and perhaps other slang for you know going and you know checking out girls or trying to get girls. So you know, not necessarily Related to the musical content, but a fun title as we often get with Maestro Posford.
 
-So, with all of that intro, right? There's all of this background. I just want you know, you know, as you're listening, you can maybe imagine, you know, that this is like the crowning, the apex of this unbelievable party that was the introduction to New York City of This unbelievable music.
+So, with all of that intro, right? There's all of this background. I just want you know, you know, as you're listening, you can maybe imagine, you know, that this is like the crowning, the apex of this unbelievable party that was the introduction to New York City of this unbelievable music.
 
 ## Commentary and Analysis
 
-Let's listen now to the Infernal Machine, A.K.A. Hallucinogen. In this case, The Loin King. Beautiful deep voice. Notice the rhythmic stuff after it. And then with the next cycle of eight bars, great whoosh, beautiful figuration. Notice the counterpoint with that other part I'm saying.
+Let's listen now to the Infernal Machine, A.K.A. Hallucinogen. In this case, "The Loin King". Beautiful deep voice. Notice the rhythmic stuff after it. And then with the next cycle of eight bars, great whoosh, beautiful figuration. Notice the counterpoint with that other part I'm saying.
 
 Then, okay, so that beautiful upper riff. Listen to that. The counterpoint with that in the bassline. Minor third in the bass line, and then these whooshes, just razor sharp. Absolutely amazing.
 
@@ -100,7 +100,7 @@ Uh all right so by this time it's been going on so many times that they're just 
 And then this ending. Endless ending. Right back at the cheers. 
 
 ## Observations and Closing Comments
-I mean, really, off the charts, and everybody was yelling out Tsuyoshi's name, and it was, you know, of course, Americanized Sushi, Sushi. Everybody's yelling out his name, but it wasn't his track? And this is the challenge with the whole nature of DJing, in a way, right? Anyone who's up there as a DJ Owes a lot of what they're doing. Let's face it, to the musical producers.
+I mean, really, off the charts, and everybody was yelling out Tsuyoshi's name, and it was, you know, of course, Americanized Sushi, Sushi. Everybody's yelling out his name, but it wasn't his track? And this is the challenge with the whole nature of DJing, in a way, right? Anyone who's up there as a DJ owes a lot of what they're doing. Let's face it, to the musical producers.
 
 So, you know, I think that every time I play, you know, right. I'm glad people are enjoying this, but we're all the musicians who put all of this together. That I would just not be up there if it weren't for that.
 
@@ -120,7 +120,7 @@ I gather that as clean and wonderfully, you know, pretty well maintained the goa
 
 And I don't know the full story of what happened afterwards, but we can certainly imagine a lot of insurance was involved because not everything was in pristine condition afterwards. Same science museum, by the way. If you watch the first X-Men movie, at the end, some of it is filmed in there. It's Liberty Science Center.
 
-So when they're in the Statue of Liberty, you know, but it's actually there's a science center that they're in for part of the lead up to that. So it's certainly how we felt there. It was like very science fiction. It was very, it was really magical, and it was a hundred and ten percent worth me going there from London and then back because it actually ended up ended up Meeting people there who I connected with in London as an experience.
+So when they're in the Statue of Liberty, you know, but it's actually there's a science center that they're in for part of the lead up to that. So it's certainly how we felt there. It was like very science fiction. It was very, it was really magical, and it was a hundred and ten percent worth me going there from London and then back because it actually ended up Meeting people there who I connected with in London as an experience.
 
 I mean, right now, I mean, you know, the emotion that's coming up and my exposure to, in a sense, what I see that I've been trying to carry the torch for, you know, in North America, and seeing, you know, some people really get it, a lot of people really don't, and see, you know, that spark start to happen, you know.
 
@@ -132,10 +132,10 @@ So we all wanted stories. We got stories. That was, you know, my the start of th
 
 So there we are, absolutely jaw-droppingly unbelievable, magical production by the great Simon Posford. I'm not sure he likes this track quite as much as I do. I think it is the bomb. So much going on, and you know, for me, obviously, you know, where I was describing it, I think you know, I was really tying in that personal recollection.
 
-I mean, there's what what there is in the music that stands apart from personal experience, right? So for me, it's really linked with that triumphant ending of like, oh my gosh, this, you know, this just entered the consciousness of so many North Americans who just did not see this coming, and the fact that the music itself really has all this rich content already independently of that event, Absolute magic.
+I mean, there's what there is in the music that stands apart from personal experience, right? So for me, it's really linked with that triumphant ending of like, oh my gosh, this, you know, this just entered the consciousness of so many North Americans who just did not see this coming, and the fact that the music itself really has all this rich content already independently of that event, Absolute magic.
 
 So here we go. I am going to sign off, and I'm just going to give a little heads up that I am going to be on a plane to Goa very shortly. So here I am, like I'm going off actually to Goa for the first time. It's my 30th anniversary in this scene, first time going to Goa, and certainly first time playing there since it's the first time I'm going.
 
-So there'll be a Break in this kind of episode because I don't think I have the time to film anything else. But we'll see if I do anything else, and if in the meantime I don't, you'll be catching me when I'm back.
+So there'll be a break in this kind of episode because I don't think I have the time to film anything else. But we'll see if I do anything else, and if in the meantime I don't, you'll be catching me when I'm back.
 
-All right. So thanks so much for tuning in, Mark DJ Solitare, and I'm gonna leave you now with a complete masterpiece released by the Infernal Machine, The Loin King. Thanks for watching!
+All right. So thanks so much for tuning in, Mark DJ Solitare, and I'm gonna leave you now with a complete masterpiece released by the Infernal Machine, "The Loin King". Thanks for watching!

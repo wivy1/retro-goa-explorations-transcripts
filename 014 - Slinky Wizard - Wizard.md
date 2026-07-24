@@ -5,45 +5,45 @@ Episode URL: https://www.youtube.com/watch?v=NqWgJdp7Gdo
 
 ## Introduction
 
-Mark, A.K.A. DJ Solitare, here with episode fourteen of Retro Goa Explorations, my series in which I present and give my observations and some background into the tracks that I think were the best ones in the goa trance psychedelic dance movement of the 1990s. And today we're going once again Back to this incredible Dragonfly's Order Odonata compilation, volume one, for one of the really seminal tracks of the period, and this is "Wizard" by Slinky Wizard. This is just one of the most, I think, cutting-edge, beautiful storyline tracks With just tons of great sounds and just it's it's an epic epic track, um and really cutting edge for the time.
+Mark, A.K.A. DJ Solitare, here with episode 14 of Retro Goa Explorations, my series in which I present and give my observations and some background into the tracks that I think were the best ones in the goa trance psychedelic dance movement of the 1990s. And today we're going once again Back to this incredible Dragonfly's Order Odonata compilation, volume one, for one of the really seminal tracks of the period, and this is "Wizard" by Slinky Wizard. This is just one of the most, I think, cutting-edge, beautiful storyline tracks with just tons of great sounds and just it's an epic track, um and really cutting edge for the time.
 
-Now I've got some intel on this from Simon Posford, who, as we've discussed, was working as an engineer at Butterfly Studios at the time. This is one of at least two tracks that were made by Slinky Wizard with Simon at Butterfly Studios. There was Lunar Juice, which came out in late 1994, or at least at some point in 94, on the Flying Rhino label, and then in 95 on the TIP Yellow compilation. Interesting, again, that sort of double label release.
+Now I've got some intel on this from Simon Posford, who, as we've discussed, was working as an engineer at Butterfly Studios at the time. This is one of at least two tracks that were made by Slinky Wizard with Simon at Butterfly Studios. There was "Lunar Juice", which came out in late 1994, or at least at some point in '94, on the Flying Rhino label, and then in '95 on the TIP Yellow compilation. Interesting, again, that sort of double label release.
 
-But this one came out on, As we know on this compilation, and this one seems to have been written first, and it's kind of amazing how early this was. The DAT that includes two different mixes of this, and we'll be getting to that, is dated December 2nd, 1993. Now it's possible that that was a DAT that sort of you know copied over the tracks from You know, different from earlier sessions, but anyway, that's the date that we know. So this track was complete by December 1993, which is pretty incredible.
+But this one came out on, as we know on this compilation, and this one seems to have been written first, and it's kind of amazing how early this was. The DAT that includes two different mixes of this, and we'll be getting to that, is dated December 2nd, 1993. Now it's possible that that was a DAT that sort of you know copied over the tracks from you know, different from earlier sessions, but anyway, that's the date that we know. So this track was complete by December 1993, which is pretty incredible.
 
 So Simon was in the studio with three of the Flying Rhino fellows. There was Ronnie Biggs, George Barker, and Dominic Lamb. And you know, Simon being an expert at the equipment, knew exactly what to do. And he said, I remember him telling me years ago as well that he said they were saying, "Oh, do this and do that." You know, they had all these ideas, and Simon was the one who just kind of knew how to make everything happen.
 
-He said that they were especially George and Dominic weren't particularly into melodies, So it's kind of amazing that they got as many as as they did in this track. But there's there's a lot of great melodies. There's a lot of great sounds in this, and the engineering is beautiful. It's a really sleek track.
+He said that they were especially George and Dominic weren't particularly into melodies, so it's kind of amazing that they got as many as they did in this track. But there's a lot of great melodies. There's a lot of great sounds in this, and the engineering is beautiful. It's a really sleek track.
 
-I think I've got a couple of details about equipment, not heaps. Track probably named for The Wizard of Oz samples that are in here. There's two of them, which I'll speak to when we hear them. And incredibly, incredible storytelling, and just really out of this world, almost quite literally. That's certainly part of the intent, I think. So I think I'll stop blabbering on because there's lots to talk about with this one. And let's get started listening to Wizard by Slinky Wizard.
+I think I've got a couple of details about equipment, not heaps. Track probably named for The Wizard of Oz samples that are in here. There's two of them, which I'll speak to when we hear them. And incredibly, incredible storytelling, and just really out of this world, almost quite literally. That's certainly part of the intent, I think. So I think I'll stop blabbering on because there's lots to talk about with this one. And let's get started listening to "Wizard" by Slinky Wizard.
 
 ## Commentary and Analysis
 
 First of all, this beautiful bassline, and then that bounce.
 
-Sort of like psychedelic ping pong or Tetris before that happened, you know. And we Have that beautiful broken voice, and then that sample from *The Wizard of Oz*. We must be over the rainbow. Voice chopped up again.
+Sort of like psychedelic ping pong or Tetris before that happened, you know. And we have that beautiful broken voice, and then that sample from *The Wizard of Oz*. We must be over the rainbow. Voice chopped up again.
 
 Just lots of, you know, again like in some of the other tracks, we're hearing a pastiche of some of the sounds that we've heard before, and then this exclamatory bassline. You know, it's not the sort of repetitive bassline we often get today. There's a rhythm to it. One note, and the way the hi-hats and everything are coming in here, sort of building up the tension.
 
-Then the way things pull back, and then The rhythm changes a little bit. It's got this great bounce and this lightness to those hi-hats. Just notice all the different rhythms that are happening, and again, how the layering works so beautifully. Just the way the.
+Then the way things pull back, and then the rhythm changes a little bit. It's got this great bounce and this lightness to those hi-hats. Just notice all the different rhythms that are happening, and again, how the layering works so beautifully. Just the way the.
 
 Love that spacey sound. And now, again with the bass line here, becomes a melody. So there's the rhythm, and then there's the movement of the notes, which is really interesting here. And this is another one of those melodies where it's really got that kind of call and answer sort of sense to it.
 
-So the first part seems like a question, And this seems like an answer. Again, you know, everything was kind of looped on MIDI, so we could just bring these things in at different times. And then here comes this gorgeous melody. Also has that rhythm, and again, everything's really quite floaty and light.
+So the first part seems like a question, and this seems like an answer. Again, you know, everything was kind of looped on MIDI, so we could just bring these things in at different times. And then here comes this gorgeous melody. Also has that rhythm, and again, everything's really quite floaty and light.
 
 I mean, beautiful kind of morning track at this point, right? And that's the second repetition of those eight bars. Another dramatic buildup here, and now it becomes a lot more intense. Comes a lot more intense.
 
-That voice in the background again. Some of them seem almost on the edge, sort of how it's voiced. It's really just adds that extra tension. And then here, really cool Thunderbolt sound.
+That voice in the background again. Some of them seem almost on the edge, sort of how it's voiced. It's really just adds that extra tension. And then here, really cool thunderbolt sound.
 
 I think one of the highlights of the track. And the structure of this, right? It's just not. Even though everything's happening in bar sections, it's not boxed in like a lot of newer tracks seem to be.
 
-This tension builds up here, And then there's another little break. Not yet. The next round. Look at that, just up.
+This tension builds up here, and then there's another little break. Not yet. The next round. Look at that, just up.
 
-That's actually a Kurzweil K2000. K2000? Yep. Simon thought it sounded a little bit cheesy, but the guys Actually liked it.
+That's actually a Kurzweil K2000. K2000? Yep. Simon thought it sounded a little bit cheesy, but the guys actually liked it.
 
 I think it's fantastic. So it adds that cyber rock kind of flavor to it. Brings a lot of drama and intensity, I think. There's a great little effect here at the end of this guitar riff where it morphs into the rest of the melody here.
 
-The voicing changed a little bit, and now, even though we've heard these notes before in that rhythm, there's something different to the voicing here, and where it's placed in the track now has a very different kind of atmosphere, much more mystical, and really does feel like you're over the rainbow. The Chorus, a little bit echoing it there. Now the other sample from The Wizard of Oz. So it does say I am Oz.
+The voicing changed a little bit, and now, even though we've heard these notes before in that rhythm, there's something different to the voicing here, and where it's placed in the track now has a very different kind of atmosphere, much more mystical, and really does feel like you're over the rainbow. The chorus, a little bit echoing it there. Now the other sample from The Wizard of Oz. So it does say I am Oz.
 
 The Simon said that the guys liked it because it almost sounds like I am Odd. Doesn't strange. And then again, there's those psychedelic ping pong balls. and just notice how the rhythm it's not all just on the strong beats again so there's all this always something syncopated that helps keep the rhythm the moving, keeps things moving.
 
@@ -55,7 +55,7 @@ That starts to lead into a really Closing dramatic riff right here. Not full dra
 
 Some nice upper stuff over there. It sort of lightens the mood here. Still, just really beautiful sounds. Really, at engineering the sound is just amazing.
 
-Again, And it's got that intensity, that kind of dramatic, exclamatory, celebratory, angst-ridden kind of this real blend of emotions. And that melody comes back. And the thunderbolt makes another reappearance here. Reappearance here.
+Again, and it's got that intensity, that kind of dramatic, exclamatory, celebratory, angst-ridden kind of this real blend of emotions. And that melody comes back. And the thunderbolt makes another reappearance here. Reappearance here.
 
 Things start simmering and calming down here. Still hear Dorothy's voice in the background. It just fades out. I mean, truly, truly incredible, incredible track.
 
@@ -63,40 +63,40 @@ Um, 136 BPM, folks. I mean, that's a pretty massive, um, massive production. Lot
 
 Now, what used to happen, since as I said, you know, everything was looped. The way what they would do is, you know, they would do sort of the main mix, but then quite often they would do what was like a live mix, what was often done at live sets, and certainly Simon was a master at doing this, where he had A 32-channel mixer and different lines looped in different channels, and he just do the arrangement on the fly. And so, you know, there's all kinds of alternate mixes like this that have been released. There's, you know, TIP's “Noises From The Darkness” that Simon did one of.
 
-There was Space Tribe's “The Great Spirit”, and just any number of them. And so there was talk for a very long time of you know Simon was rumored to have done a long mix of this one, which he did. And the story that was going around was that there was a 40-minute mix. So what I located when we did Simon and I did some digging was a 25-minute mix, and this is on that DAT DATed December Second, 1993, and the name of that alternate mix was Solar Journey.
+There was Space Tribe's “The Great Spirit”, and just any number of them. And so there was talk for a very long time of you know Simon was rumored to have done a long mix of this one, which he did. And the story that was going around was that there was a 40-minute mix. So what I located when we did Simon and I did some digging was a 25-minute mix, and this is on that DAT DATed December second, 1993, and the name of that alternate mix was "Solar Journey".
 
 Why it had a different name? I mean, that might have been the working title for the whole thing. I don't know, but in any case, that's a 25-minute one. But I did hear then from, I believe, George Barker, that there actually was another long live mix, and where that one is, I don't know.
 
-But apparently, the only person to have played out this long one in the 90s was, I believe, George. It might have been one of the other Flying Rhino fellows. And I visited Simon in September 98. See how I'm getting all my decades confused?
+But apparently, the only person to have played out this long one in the 1990s was, I believe, George. It might have been one of the other Flying Rhino fellows. And I visited Simon in September '98. See how I'm getting all my decades confused?
 
-I mean, honestly, I have a very hard time Believing that the 90s was more than 20 years ago, but that's another story. So, 2018, let's advance 20 years. In September 2018, I visited Simon and found that this had been digitized. Got a copy, and then I played this, the bulk of it, at the end of my set at the Goa Guardians stage at ZNA in 2019.
+I mean, honestly, I have a very hard time Believing that the 1990s was more than 20 years ago, but that's another story. So, 2018, let's advance 20 years. In September 2018, I visited Simon and found that this had been digitized. Got a copy, and then I played this, the bulk of it, at the end of my set at the Goa Guardians stage at ZNA in 2019.
 
 It was kind of the perfect time because it was wrapping up that party. It was turning into a down tempo tent, and the first ten minutes of this track, there's no kick. It is this long, spacious, beautiful introduction. If I'd been playing it on the main stage, it wouldn't have worked.
 
 Right? There's ten minutes with no kick. There's all these leads that you know, this sort of red herrings, these false starts where you think the kick's going to come in and it doesn't. You know this sort of red herrings, these false starts where you think the kick's going to come in and it does for a bar and then it doesn't.
 
-But it worked in that setting and was kind of magical. I'm just going to play the intro, that one part of it, and then I'm going to point out something else structural that's later in the track. So just at the beginning, it starts with this, Just this real simple pulsing, so different from the main track, really quite dramatic way. I mean, that's basically it.
+But it worked in that setting and was kind of magical. I'm just going to play the intro, that one part of it, and then I'm going to point out something else structural that's later in the track. So just at the beginning, it starts with this, just this real simple pulsing, so different from the main track, really quite dramatic way. I mean, that's basically it.
 
-These, you know, these mixes were just made; they were spontaneous mixes. This is why live sets back in the day were really special because when they were well done, the way Simon did them, it was a complete, just in the moment, spontaneously produced track. Now the there's that riff that's starting to come in, bassline. I mean, it's Minutes.
+These, you know, these mixes were just made; they were spontaneous mixes. This is why live sets back in the day were really special because when they were well done, the way Simon did them, it was a complete, just in the moment, spontaneously produced track. Now the there's that riff that's starting to come in, bassline. I mean, it's minutes.
 
 Everything comes in very slowly, right? We're a minute into the track, almost nothing's happened. Um. So again, you know, you can't just throw this on at any party.
 
 It's not going to work. Really needs to be the right occasion because it does take a long time for things to get moving. But it is beautiful. Um.
 
-One of the things that's really interesting I find is that there's a melody that's brought in in this track that's from another production that Simon did with somebody else that was “The Great Bear” by North Central Positronics, and it had obviously been done at around the same time because Simon brings in that melody here And it fits perfectly. Now the kicker is that on that mixtape that Jay made me back in 1994, he mixed Wizard and the Great Bear together in the DJ mix. So it was, you know, he didn't know, he didn't know, nobody, nobody, nobody had heard this track, this unreleased desk mix at that point. But Jay, you know, had great intuition and you know put those tracks together Because they do fit like a glove.
+One of the things that's really interesting I find is that there's a melody that's brought in this track that's from another production that Simon did with somebody else that was “The Great Bear” by North Central Positronics, and it had obviously been done at around the same time because Simon brings in that melody here and it fits perfectly. Now the kicker is that on that mixtape that Jay made me back in 1994, he mixed "Wizard" and "The Great Bear" together in the DJ mix. So it was, you know, he didn't know, nobody, nobody, nobody had heard this track, this unreleased desk mix at that point. But Jay, you know, had great intuition and you know put those tracks together because they do fit like a glove.
 
-So that's two minutes into the track, 2:15. I'm just going to pause it there, and I'm just going to jump ahead to just before the five-minute mark, and you'll hear just a little bit of that melody come in. So it's like again the same voices that are broken up in the wizard track. This is more beautiful, sort of choral, angelic kind of quality.
+So that's two minutes into the track, 2:15. I'm just going to pause it there, and I'm just going to jump ahead to just before the five-minute mark, and you'll hear just a little bit of that melody come in. So it's like again the same voices that are broken up in the "Wizard" track. This is more beautiful, sort of choral, angelic kind of quality.
 
-That was 'The Great Bear.' Do check out that track. I managed to get it released on one of the Mind Rewind series. Absolutely beautiful, beautiful track.
+That was '"The Great Bear".' do check out that track. I managed to get it released on one of the Mind Rewind series. Absolutely beautiful, beautiful track.
 
-Simon doesn't agree, but but I think it's wonderful. And now it starts, you know, the gating starts, so it starts to become a little bit more like the Slinky Wizard tracks. So we're there just after five and a half minutes again into a 25-minute track. 
+Simon doesn't agree, but I think it's wonderful. And now it starts, you know, the gating starts, so it starts to become a little bit more like the Slinky Wizard tracks. So we're there just after five and a half minutes again into a 25-minute track. 
 
 ## Observations and Closing Comments
 
-So yeah, kind of an interesting, fascinating. How do you do? You know the, I mean, there's great advantages to how the music's being made now on computers, and everything's just sort of in there, and you know they don't have to worry about all the hardware. But the limitations of the time, the fact that you know all the synths had to be set up in a certain way, and they couldn't move on to the next track until this was recorded because they lose the settings. I mean, it was different, right?
+So yeah, kind of an interesting, fascinating. How do you know the, I mean, there's great advantages to how the music's being made now on computers, and everything's just sort of in there, and you know they don't have to worry about all the hardware. But the limitations of the time, the fact that you know all the synths had to be set up in a certain way, and they couldn't move on to the next track until this was recorded because they lose the settings. I mean, it was different, right?
 
-And they had These really spontaneous, in the moment mixes that they would do, and magic happened. You know, if you're, it was like the DJ sets. It was just you put things on. You know, you're in the right vibe, you're in the right creative headspace and overall space for something to happen.
+And they had these really spontaneous, in the moment mixes that they would do, and magic happened. You know, if you're, it was like the DJ sets. It was just you put things on. You know, you're in the right vibe, you're in the right creative headspace and overall space for something to happen.
 
-And you know, you get a little spiritual and get a little woo-woo about you know you're you being a channel through which something greater is is coming through. But really did feel like that, and so sometimes there's just this there's this extra little something in some of these old tracks, and I think that's a lot of what we're listening to. When we listen to these old tracks, it's not just the great musical content, but it's the you know what was going on for the artists, what was the energy that They were bringing and especially curiosity and the exploration and then you know in this track as we got the other guys who were really so excited and asking, please do that, you know, do this, do this, do that, because you know they were really excited to be creating some music, and I think we can hear it. So on that note, in the key of D, I will sign off here and I'll present the complete Wizard As released on this legendary CD, so that you can check it out, Wizard by Slinky Wizard.
+And you know, you get a little spiritual and get a little woo-woo about you know you're you being a channel through which something greater is coming through. But really did feel like that, and so sometimes there's just this there's this extra little something in some of these old tracks, and I think that's a lot of what we're listening to. When we listen to these old tracks, it's not just the great musical content, but it's the you know what was going on for the artists, what was the energy that they were bringing and especially curiosity and the exploration and then you know in this track as we got the other guys who were really so excited and asking, please do that, you know, do this, do that, because you know they were really excited to be creating some music, and I think we can hear it. So on that note, in the key of D, I will sign off here and I'll present the complete "Wizard" as released on this legendary CD, so that you can check it out, "Wizard" by Slinky Wizard.
 
 And I'm Mark DJ Solitare. Thanks for tuning in, and I'll see you next time.

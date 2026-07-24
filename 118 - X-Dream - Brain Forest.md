@@ -5,21 +5,21 @@ Episode URL: https://www.youtube.com/watch?v=JgIjsZLalr8
 
 ## Introduction
 
-Hey there, goa fans! This is Mark DJ Solitare here with episode 118 of Retro Goa Explorations, my weekly series in which I share in every episode one of my favorite tracks from the 1990s goa trance psychedelic dance movement. We are currently in the '97–'98 season, so music that was released or that I got in the autumn of ninety-seven through to the end of the summer of ninety-eight, and yet this fits the second category. So it is something that was released earlier in ninety-seven than I got it, which was either in late ninety-seven or early ninety-eight.
+Hey there, goa fans! This is Mark DJ Solitare here with episode 118 of Retro Goa Explorations, my weekly series in which I share in every episode one of my favorite tracks from the 1990s goa trance psychedelic dance movement. We are currently in the '97–'98 season, so music that was released or that I got in the autumn of '97 through to the end of the summer of '98, and yet this fits the second category. So it is something that was released earlier in '97 than I got it, which was either in late '97 or early '98.
 
-It is one of those like, whoopsie, I can't Actually, quite remember when I got this because it was a vinyl track. And when it came to those ones, you know, I was only collecting CDs. I was putting everything on on DAT, right? Digital audio tapes because that's how I was DJing.
+It is one of those like, whoopsie, I can't actually, quite remember when I got this because it was a vinyl track. And when it came to those ones, you know, I was only collecting CDs. I was putting everything on DAT, right? Digital audio tapes because that's how I was DJing.
 
-And so when it came to vinyl-only tracks, I really relied on friends Who had these tracks, and I didn't always know sort of the latest things that were out. So whenever this particular masterpiece came to me, I don't recall, but I did play it at my first gig in Tokyo on May twenty third, nineteen ninety eight. It was one of the closing tracks of my set, And oh boy, this really is a masterpiece. So I'm talking about Brain Forest by X-Dream.
+And so when it came to vinyl-only tracks, I really relied on friends who had these tracks, and I didn't always know sort of the latest things that were out. So whenever this particular masterpiece came to me, I don't recall, but I did play it at my first gig in Tokyo on May twenty third, 1998. It was one of the closing tracks of my set, and oh boy, this really is a masterpiece. So I'm talking about "Brain Forest" by X-Dream.
 
-So you will have noticed if you've been paying attention to the tracks I'm featuring this season, there's already been a lot with X-Dream or X-Dream side projects. And the reason I need to Feature this one. I mean, need to feature all of them because they're great music. But this is so like this just shows the variety of sounds and styles and musical, you know, atmospheres that these artists could create.
+So you will have noticed if you've been paying attention to the tracks I'm featuring this season, there's already been a lot with X-Dream or X-Dream side projects. And the reason I need to feature this one. I mean, need to feature all of them because they're great music. But this is so like this just shows the variety of sounds and styles and musical, you know, atmospheres that these artists could create.
 
-Things have really gotten to the point, I think, in this musical scene, and in a lot of them, A lot of different musical scenes that artists have one sound, you know, they have one style, and not the great ones. They might have really recognizable characteristics, but also be able to create music with, you know, different moods and different characters. And so when X-Dream's album Radio came out, there is a more sort of cohesive flavor. There is still this incredible flow that goes through, and yet, other than the last, the second to last track, which is a bit more of a you know an upbeat morning track, and then that closing ambient one, And they're all incredible.
+Things have really gotten to the point, I think, in this musical scene, and in a lot of them, A lot of different musical scenes that artists have one sound, you know, they have one style, and not the great ones. They might have really recognizable characteristics, but also be able to create music with, you know, different moods and different characters. And so when X-Dream's album Radio came out, there is a more sort of cohesive flavor. There is still this incredible flow that goes through, and yet, other than the last, the second to last track, which is a bit more of a you know an upbeat morning track, and then that closing ambient one, and they're all incredible.
 
-There's a darker, harder edge to a lot of that music, and yet at the same time, they also produced, you know, in 1997 when all of those other tracks were being written, they also produced, you know, Brain Forest, and the other side is S.T.O.P., spelled out S.T.O.P. Very different in character from what's on the album, and you, I just kind of wonder What would it have been like if one or two of those tracks had been on the album? You know, I, you know, with *Hallucinogen*, I also thought this. You know, I just helped out with the release of the *Hallucinogen* singles on vinyl, and I often thought there could have been an album 1.5 between *Twisted* and *The Lone Deranger*, with things like *Astral Pancakes*, *Angelic Particles*, *Thugs in Tye-Dye*, and so on.
+There's a darker, harder edge to a lot of that music, and yet at the same time, they also produced, you know, in 1997 when all of those other tracks were being written, they also produced, you know, "Brain Forest", and the other side is S.T.O.P., spelled out S.T.O.P. Very different in character from what's on the album, and you, I just kind of wonder what would it have been like if one or two of those tracks had been on the album? You know, I, you know, with *Hallucinogen*, I also thought this. You know, I just helped out with the release of the *Hallucinogen* singles on vinyl, and I often thought there could have been an album 1.5 between *Twisted* and *The Lone Deranger*, with things like "Astral Pancakes", "Angelic Particles", "Thugs in Tye-Dye", and so on.
 
-It would have made like a completely different flow and given a completely different atmosphere from what was on the first album, what was on the second, and it's the same with X-Dream. I mean, imagine an album where you have S.T.O.P. and Brain Forest and Coming Soon, which is coming soon, and and so on and so forth. And you know what is to be celebrated is the fact that these artists did write all this incredible music. You know, so it's not really what didn't happen.
+It would have made like a completely different flow and given a completely different atmosphere from what was on the first album, what was on the second, and it's the same with X-Dream. I mean, imagine an album where you have S.T.O.P. and "Brain Forest" and "Coming Soon", which is coming soon, and so on and so forth. And you know what is to be celebrated is the fact that these artists did write all this incredible music. You know, so it's not really what didn't happen.
 
-That album is an incredible conception, and it's brilliant. And things that are released as albums and things that were released on CD, you know, sorry, you know, on CD, they got more spread. They reached a wider audience. Brain Forest, I think, might have been on one of those, you know, fantastic German compilations by Nova Tekk, but it would have been, you know, not part of this whole flow, that we have in the album.
+That album is an incredible conception, and it's brilliant. And things that are released as albums and things that were released on CD, you know, sorry, you know, on CD, they got more spread. They reached a wider audience. "Brain Forest", I think, might have been on one of those, you know, fantastic German compilations by Nova Tekk, but it would have been, you know, not part of this whole flow, that we have in the album.
 
 So in any case, at the very least, they produced it. It's amazing, and it needs to be featured. And today, it's going to be featured. So there's a relentless optimism in this particular track.
 
@@ -27,7 +27,7 @@ Incredible beauty, some fantastic sounds. A whole range of sonorities, which is 
 
 There's a transparency to the presentation of all of these voices, so everything is heard really clearly. And I just think this is one of my all-time favorite tracks. I would choose this over some of the ones on the album, all of which I still think are brilliant. And this is also like this is in one of my probably top ten X-Dream tracks, most definitely, possibly in the top five.
 
-But again, as I said, there's more coming soon, And it's probably time that we give this track a listen. So it's a nice long one. It's in the key of B as well, which is a rarer kind of key. The Mandala – Utopia track as well is also in this key, because I often mixed these two together, and it's just an absolute beauty.
+But again, as I said, there's more coming soon, and it's probably time that we give this track a listen. So it's a nice long one. It's in the key of B as well, which is a rarer kind of key. The Mandala – "Utopia" track as well is also in this key, because I often mixed these two together, and it's just an absolute beauty.
 
 So let's get started. Let's listen to X-Dream's. Absolutely gorgeous! Oh, and I should also talk about the title with brainforest.
 
@@ -35,25 +35,25 @@ It's so evocative. I mean, if you think about your brain, you know, and ideas gr
 
 ## Commentary and Analysis
 
-So here we go. X-Dream's, exquisitely beautiful, Brain Forest. So right away we have something that's got that voice-like sound. It's a little bit more reminiscent of some of the earlier X-Dream tracks as well, which I love.
+So here we go. X-Dream's, exquisitely beautiful, "Brain Forest". So right away we have something that's got that voice-like sound. It's a little bit more reminiscent of some of the earlier X-Dream tracks as well, which I love.
 
 So there's that mantra-like repetition with these other sounds, and then that slide, and that ushers in this little rhythmic piece that's happening over here. That fun rhythmic riff. Listen, how many different rhythmic things are happening, and they're all incredibly clear, right? And they're not super separated on a frequency level.
 
-But and that mantra-like riff again has this. There's this real light, right, upbeat optimism that gets created through how these riffs are are shaped. So that amazing bass coming in, and the kick coming in shortly, and we're back in that beautiful X-Dream chugga-chugga and bassline and percussive drive that's. And percussive, percussive drive.
+But and that mantra-like riff again has this. There's this real light, right, upbeat optimism that gets created through how these riffs are shaped. So that amazing bass coming in, and the kick coming in shortly, and we're back in that beautiful X-Dream chugga-chugga and bassline and percussive drive that's. And percussive, percussive drive.
 
 It's not overbearing or relentless. That slide again, really, you know, comes through the speakers when you've got that on a big system. More upbeat, celebratory. This perfect morning track.
 
 It is perfect morning track. What I love about it is, listen to that one. Sorry, I'll continue that prompt in a sec. We're going up and down.
 
-I love that it's so upbeat, and for me, there's nothing cheesy about this whatsoever. The harmonies are really clear And grounded and fit within, you know. I think I would say classical rules and structures. Just this beautiful repetition, but just this storyline that comes from this until this break that's coming up.
+I love that it's so upbeat, and for me, there's nothing cheesy about this whatsoever. The harmonies are really clear and grounded and fit within, you know. I think I would say classical rules and structures. Just this beautiful repetition, but just this storyline that comes from this until this break that's coming up.
 
-One more round. Beautiful, triumphant, celebratory riff. As the rhythm, the exclamation combined with that slide, there's going to be a great break, and just like this heralding of You know, a new beginning. And that tweaking.
+One more round. Beautiful, triumphant, celebratory riff. As the rhythm, the exclamation combined with that slide, there's going to be a great break, and just like this heralding of you know, a new beginning. And that tweaking.
 
-I mean, is this not shades of We Created Our Own Happiness? This keeps going. Then There's gonna be a beautiful slide when after you know you think it can't go any higher and it continues to do it. Notice the shift that's gonna come.
+I mean, is this not shades of "We Created Our Own Happiness"? This keeps going. Then there's gonna be a beautiful slide when after you know you think it can't go any higher and it continues to do it. Notice the shift that's gonna come.
 
 Still not. It's unbelievable. I still like after you know 25 years. I still like when is the break coming?
 
-There we go. Then things, you know, the the framing of that changes. Just rich, fat analog sounds. Beautiful melodic riffs, right?
+There we go. Then things, you know, the framing of that changes. Just rich, fat analog sounds. Beautiful melodic riffs, right?
 
 Very catchy. That extra little bit in the background there. Just try to count how many things are going on, but it's got this beautiful organic, you know, structure to it. That's that.
 
@@ -75,8 +75,8 @@ Oh boy! I mean, really, that is such a masterpiece, and I think sorely overlooke
 
 Of course, I mean I wasn't at every single party, was I? I was certainly playing it out, but you know I think a lot of folks, really, with artists, they hear the albums, and that can be sort of the sound signature that they glom onto in terms of their perception of the artist. And there's a lot more with a lot of the greatest artists. And let's face it, X-Dream is among the greatest artists.
 
-And so this is just, like I mentioned, it has that incredible optimism of We Created Our Own Happiness, right? Some similar sounds, and that similar upbeat vibe, same beauty of harmony, and just this incredible, you know, this forward momentum. That's not drive; it's you know enthusiasm. This jubilant Expression of the joy of aliveness.
+And so this is just, like I mentioned, it has that incredible optimism of "We Created Our Own Happiness", right? Some similar sounds, and that similar upbeat vibe, same beauty of harmony, and just this incredible, you know, this forward momentum. That's not drive; it's you know enthusiasm. This jubilant Expression of the joy of aliveness.
 
-So, just an absolute masterpiece. Again, hats off to Marcus and Jan for this particular masterpiece. And as I said, there is more coming soon, including coming soon. There are other, you know, there's a whole other sound signature and so on.
+So, just an absolute masterpiece. Again, hats off to Marcus and Jan for this particular masterpiece. And as I said, there is more coming soon, including "Coming Soon". There are other, you know, there's a whole other sound signature and so on.
 
-But of course, very X-Dream, and got lots to say about that particular one as well. But for now, I will wrap up episode 118 of Retro Goa Explorations. I'm Mark DJ Solitare, leaving you now with the exquisite, beautiful, uplifting, joyful, and triumphant Brain Forest by X-Dream.
+But of course, very X-Dream, and got lots to say about that particular one as well. But for now, I will wrap up episode 118 of Retro Goa Explorations. I'm Mark DJ Solitare, leaving you now with the exquisite, beautiful, uplifting, joyful, and triumphant "Brain Forest" by X-Dream.
