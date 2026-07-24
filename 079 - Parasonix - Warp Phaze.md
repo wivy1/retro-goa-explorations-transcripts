@@ -1,6 +1,6 @@
-Artist: Parasonix  
-Track: Warp Phaze  
-Year of release: 1996  
+**Artist:** Parasonix  
+**Track:** Warp Phaze  
+**Year of release:** 1996  
 Episode URL: https://www.youtube.com/watch?v=FPRytitSb2c
 
 ## Introduction

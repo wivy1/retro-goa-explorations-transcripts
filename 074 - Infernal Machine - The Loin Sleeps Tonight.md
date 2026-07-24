@@ -1,6 +1,6 @@
-Artist: Infernal Machine  
-Track: The Loin Sleeps Tonight  
-Year of release: 1996  
+**Artist:** Infernal Machine  
+**Track:** The Loin Sleeps Tonight  
+**Year of release:** 1996  
 Episode URL: https://www.youtube.com/watch?v=iBltAXfp5eM
 
 ## Introduction

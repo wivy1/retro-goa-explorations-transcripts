@@ -1,6 +1,6 @@
-Artist: X-Dream  
-Track: Coming Soon  
-Year of release: 1999  
+**Artist:** X-Dream  
+**Track:** Coming Soon  
+**Year of release:** 1999  
 Episode URL: https://www.youtube.com/watch?v=cD8g7oC7eDI
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Man With No Name  
-Track: Possessed  
-Year of release: 1998  
+**Artist:** Man With No Name  
+**Track:** Possessed  
+**Year of release:** 1998  
 Episode URL: https://www.youtube.com/watch?v=Lq0N4QI29nM
 
 ## Introduction

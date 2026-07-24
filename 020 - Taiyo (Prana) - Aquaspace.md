@@ -1,6 +1,6 @@
-Artist: Taiyo (Prana)  
-Track: Aquaspace  
-Year of release: 1994  
+**Artist:** Taiyo (Prana)  
+**Track:** Aquaspace  
+**Year of release:** 1994  
 Episode URL: https://www.youtube.com/watch?v=HvEhsE16omI
 
 ## Introduction

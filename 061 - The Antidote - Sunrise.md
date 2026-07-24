@@ -1,6 +1,6 @@
-Artist: The Antidote  
-Track: Sunrise  
-Year of release: 1996  
+**Artist:** The Antidote  
+**Track:** Sunrise  
+**Year of release:** 1996  
 Episode URL: https://www.youtube.com/watch?v=stOMNGYtpLw
 
 ## Introduction

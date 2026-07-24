@@ -1,6 +1,6 @@
-Artist: UX  
-Track: Master of the Universe  
-Year of release: 1996  
+**Artist:** UX  
+**Track:** Master of the Universe  
+**Year of release:** 1996  
 Episode URL: https://www.youtube.com/watch?v=BBVtkElOQ48
 
 ## Introduction

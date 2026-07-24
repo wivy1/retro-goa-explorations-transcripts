@@ -1,6 +1,6 @@
-Artist: Pleiadians  
-Track: Time Dilation  
-Year of release: 1996  
+**Artist:** Pleiadians  
+**Track:** Time Dilation  
+**Year of release:** 1996  
 Episode URL: https://www.youtube.com/watch?v=vYbTQ2yJaQM
 
 ## Introduction

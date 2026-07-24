@@ -1,6 +1,6 @@
-Artist: Astralasia  
-Track: Astral Navigation  
-Year of release: 1994  
+**Artist:** Astralasia  
+**Track:** Astral Navigation  
+**Year of release:** 1994  
 Episode URL: https://www.youtube.com/watch?v=GO2wTbzZQ6M
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Slinky Wizard  
-Track: Wizard  
-Year of release: 1994  
+**Artist:** Slinky Wizard  
+**Track:** Wizard  
+**Year of release:** 1994  
 Episode URL: https://www.youtube.com/watch?v=NqWgJdp7Gdo
 
 ## Introduction

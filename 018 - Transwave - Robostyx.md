@@ -1,6 +1,6 @@
-Artist: Transwave  
-Track: Robostyx  
-Year of release: 1995  
+**Artist:** Transwave  
+**Track:** Robostyx  
+**Year of release:** 1995  
 Episode URL: https://www.youtube.com/watch?v=h7YiFWblcN4
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Space Tribe  
-Track: The Great Spirit (original mix)  
-Year of release: 2014  
+**Artist:** Space Tribe  
+**Track:** The Great Spirit (original mix)  
+**Year of release:** 2014  
 Episode URL: https://www.youtube.com/watch?v=V5hzNvdWITI
 
 ## Introduction

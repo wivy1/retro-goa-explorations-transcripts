@@ -1,6 +1,6 @@
-Artist: Juno Reactor  
-Track: Feel the Universe  
-Year of release: 1994  
+**Artist:** Juno Reactor  
+**Track:** Feel the Universe  
+**Year of release:** 1994  
 Episode URL: https://www.youtube.com/watch?v=yZ_7cGWqGig
 
 ## Introduction

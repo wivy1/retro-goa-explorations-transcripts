@@ -1,6 +1,6 @@
-Artist: Psychaos  
-Track: Intellect  
-Year of release: 1995  
+**Artist:** Psychaos  
+**Track:** Intellect  
+**Year of release:** 1995  
 Episode URL: https://www.youtube.com/watch?v=TTMZUx3Xlr4
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Organic Noise  
-Track: Labyrinth of Colours  
-Year of release: 1997  
+**Artist:** Organic Noise  
+**Track:** Labyrinth of Colours  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=AqbN9RAhkfs
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Sibilant  
-Track: Screecher Creature  
-Year of release: 1996  
+**Artist:** Sibilant  
+**Track:** Screecher Creature  
+**Year of release:** 1996  
 Episode URL: https://www.youtube.com/watch?v=UPN3-dNNTk4
 
 ## Introduction

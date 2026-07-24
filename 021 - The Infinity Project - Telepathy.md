@@ -1,6 +1,6 @@
-Artist: The Infinity Project  
-Track: Telepathy  
-Year of release: 1994  
+**Artist:** The Infinity Project  
+**Track:** Telepathy  
+**Year of release:** 1994  
 Episode URL: https://www.youtube.com/watch?v=NIXDJhZ-ga0
 
 ## Introduction

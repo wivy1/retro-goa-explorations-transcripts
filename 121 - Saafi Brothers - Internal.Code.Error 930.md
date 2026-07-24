@@ -1,6 +1,6 @@
-Artist: Saafi Brothers  
-Track: Internal.Code.Error 930  
-Year of release: 1997  
+**Artist:** Saafi Brothers  
+**Track:** Internal.Code.Error 930  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=4T35junFzqU
 
 ## Introduction

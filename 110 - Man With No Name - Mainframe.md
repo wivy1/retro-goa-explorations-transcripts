@@ -1,6 +1,6 @@
-Artist: Man With No Name  
-Track: Mainframe  
-Year of release: 1998  
+**Artist:** Man With No Name  
+**Track:** Mainframe  
+**Year of release:** 1998  
 Episode URL: https://www.youtube.com/watch?v=EoNXHr3xZbg
 
 ## Introduction

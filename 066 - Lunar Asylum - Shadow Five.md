@@ -1,6 +1,6 @@
-Artist: Lunar Asylum  
-Track: Shadow Five  
-Year of release: 1997  
+**Artist:** Lunar Asylum  
+**Track:** Shadow Five  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=9ZIaln49AKI
 
 ## Introduction

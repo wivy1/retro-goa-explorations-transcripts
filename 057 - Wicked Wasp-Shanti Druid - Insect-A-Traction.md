@@ -1,6 +1,6 @@
-Artist: Wicked Wasp/Shanti Druid  
-Track: Insect-A-Traction  
-Year of release: 1995  
+**Artist:** Wicked Wasp/Shanti Druid  
+**Track:** Insect-A-Traction  
+**Year of release:** 1995  
 Episode URL: https://www.youtube.com/watch?v=3InH4XoQ6DM
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Prana  
-Track: Moretsu (Indigo & Baraka Mix)  
-Year of release: 1995  
+**Artist:** Prana  
+**Track:** Moretsu (Indigo & Baraka Mix)  
+**Year of release:** 1995  
 Episode URL: https://www.youtube.com/watch?v=Hp-N8bOz8TQ
 
 ## Introduction

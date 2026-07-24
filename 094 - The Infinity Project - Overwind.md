@@ -1,6 +1,6 @@
-Artist: The Infinity Project  
-Track: Overwind  
-Year of release: 1997  
+**Artist:** The Infinity Project  
+**Track:** Overwind  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=zeL_9FN0aGs
 
 ## Introduction

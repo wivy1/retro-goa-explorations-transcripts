@@ -1,6 +1,6 @@
-Artist: Hallucinogen  
-Track: Astral Pancakes  
-Year of release: 1995  
+**Artist:** Hallucinogen  
+**Track:** Astral Pancakes  
+**Year of release:** 1995  
 Episode URL: https://www.youtube.com/watch?v=K8jQgcJjxY0
 
 ## Introduction

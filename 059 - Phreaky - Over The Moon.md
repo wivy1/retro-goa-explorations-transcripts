@@ -1,6 +1,6 @@
-Artist: Phreaky  
-Track: Over The Moon  
-Year of release: 1996  
+**Artist:** Phreaky  
+**Track:** Over The Moon  
+**Year of release:** 1996  
 Episode URL: https://www.youtube.com/watch?v=1weqvWxHqxA
 
 ## Introduction

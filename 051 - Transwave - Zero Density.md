@@ -1,6 +1,6 @@
-Artist: Transwave  
-Track: Zero Density  
-Year of release: 1995  
+**Artist:** Transwave  
+**Track:** Zero Density  
+**Year of release:** 1995  
 Episode URL: https://www.youtube.com/watch?v=rqwqfzSm90U
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Space Tribe  
-Track: Geo-Matrix  
-Year of release: 1994–1995  
+**Artist:** Space Tribe  
+**Track:** Geo-Matrix  
+**Year of release:** 1994–1995  
 Episode URL: https://www.youtube.com/watch?v=9XpLXSJk8OI
 
 ## Introduction

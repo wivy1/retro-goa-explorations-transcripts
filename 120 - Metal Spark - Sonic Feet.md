@@ -1,6 +1,6 @@
-Artist: Metal Spark  
-Track: Sonic Feet  
-Year of release: 1998  
+**Artist:** Metal Spark  
+**Track:** Sonic Feet  
+**Year of release:** 1998  
 Episode URL: https://www.youtube.com/watch?v=kYudQ9CA7co
 
 ## Introduction

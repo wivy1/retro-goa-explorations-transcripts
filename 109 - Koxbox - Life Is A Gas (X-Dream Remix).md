@@ -1,6 +1,6 @@
-Artist: Koxbox  
-Track: Life Is A Gas (X-Dream Remix)  
-Year of release: 1997  
+**Artist:** Koxbox  
+**Track:** Life Is A Gas (X-Dream Remix)  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=6Vymq76-Zx8
 
 ## Introduction

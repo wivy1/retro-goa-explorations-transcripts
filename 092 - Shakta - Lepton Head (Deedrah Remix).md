@@ -1,6 +1,6 @@
-Artist: Shakta  
-Track: Lepton Head (Deedrah Remix)  
-Year of release: 1997  
+**Artist:** Shakta  
+**Track:** Lepton Head (Deedrah Remix)  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=FInP18i8428
 
 ## Introduction

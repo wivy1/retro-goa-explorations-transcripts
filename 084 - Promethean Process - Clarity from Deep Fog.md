@@ -1,6 +1,6 @@
-Artist: Promethean Process  
-Track: Clarity from Deep Fog  
-Year of release: 1997  
+**Artist:** Promethean Process  
+**Track:** Clarity from Deep Fog  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=4sNfgNdAeAg
 
 ## Introduction

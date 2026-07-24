@@ -1,6 +1,6 @@
-Artist: Infernal Machine  
-Track: Nocturnal Chainsaw Kerfuffle  
-Year of release: 1997  
+**Artist:** Infernal Machine  
+**Track:** Nocturnal Chainsaw Kerfuffle  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=Td6B2-LfPU8
 
 ## Introduction

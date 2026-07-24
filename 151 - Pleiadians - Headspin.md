@@ -1,6 +1,6 @@
-Artist: Pleiadians  
-Track: Headspin  
-Year of release: 1998  
+**Artist:** Pleiadians  
+**Track:** Headspin  
+**Year of release:** 1998  
 Episode URL: https://www.youtube.com/watch?v=bQEml6v9NKM
 
 ## Introduction

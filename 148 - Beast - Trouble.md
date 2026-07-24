@@ -1,6 +1,6 @@
-Artist: Beast  
-Track: Trouble  
-Year of release: 1998  
+**Artist:** Beast  
+**Track:** Trouble  
+**Year of release:** 1998  
 Episode URL: https://www.youtube.com/watch?v=hgtE_fCDEcE
 
 ## Introduction

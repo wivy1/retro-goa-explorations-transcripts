@@ -1,6 +1,6 @@
-Artist: Etnica  
-Track: Merkaba  
-Year of release: 1999  
+**Artist:** Etnica  
+**Track:** Merkaba  
+**Year of release:** 1999  
 Episode URL: https://www.youtube.com/watch?v=KWKhraIMIIk
 
 ## Introduction

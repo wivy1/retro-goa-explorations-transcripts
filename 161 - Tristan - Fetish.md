@@ -1,6 +1,6 @@
-Artist: Tristan  
-Track: Fetish  
-Year of release: 1999  
+**Artist:** Tristan  
+**Track:** Fetish  
+**Year of release:** 1999  
 Episode URL: https://www.youtube.com/watch?v=lbt4323PsFg
 
 ## Introduction

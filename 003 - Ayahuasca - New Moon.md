@@ -1,6 +1,6 @@
-Artist: Ayahuasca  
-Track: New Moon  
-Year of release: 1994  
+**Artist:** Ayahuasca  
+**Track:** New Moon  
+**Year of release:** 1994  
 Episode URL: https://www.youtube.com/watch?v=s8lWvQgbzFs
 
 ## Introduction

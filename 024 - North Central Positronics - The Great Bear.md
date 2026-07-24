@@ -1,6 +1,6 @@
-Artist: North Central Positronics  
-Track: The Great Bear  
-Year of release: 1994  
+**Artist:** North Central Positronics  
+**Track:** The Great Bear  
+**Year of release:** 1994  
 Episode URL: https://www.youtube.com/watch?v=XcUgXh4cmfo
 
 ## Introduction

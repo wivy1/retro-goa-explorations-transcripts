@@ -1,6 +1,6 @@
-Artist: X-Dream  
-Track: Radio (X-Dream Remix)  
-Year of release: 1998  
+**Artist:** X-Dream  
+**Track:** Radio (X-Dream Remix)  
+**Year of release:** 1998  
 Episode URL: https://www.youtube.com/watch?v=KsknvDyzVTY
 
 ## Introduction

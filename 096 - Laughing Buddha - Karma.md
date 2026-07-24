@@ -1,6 +1,6 @@
-Artist: Laughing Buddha  
-Track: Karma  
-Year of release: 1997  
+**Artist:** Laughing Buddha  
+**Track:** Karma  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=EIQyFKTuWIU
 
 ## Introduction

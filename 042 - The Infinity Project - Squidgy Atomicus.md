@@ -1,6 +1,6 @@
-Artist: The Infinity Project  
-Track: Squidgy Atomicus  
-Year of release: 1995  
+**Artist:** The Infinity Project  
+**Track:** Squidgy Atomicus  
+**Year of release:** 1995  
 Episode URL: https://www.youtube.com/watch?v=b5Mw5UyKCSI
 
 ## Introduction

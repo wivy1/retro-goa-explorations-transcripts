@@ -1,6 +1,6 @@
-Artist: Prana  
-Track: Scarab (Green Nuns of the Revolution Remix)  
-Year of release: 1997  
+**Artist:** Prana  
+**Track:** Scarab (Green Nuns of the Revolution Remix)  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=k6INJcnhdgk
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Etnica  
-Track: Screaming Butterfly  
-Year of release: 1996  
+**Artist:** Etnica  
+**Track:** Screaming Butterfly  
+**Year of release:** 1996  
 Episode URL: https://www.youtube.com/watch?v=51JmCZCX7MY
 
 ## Introduction

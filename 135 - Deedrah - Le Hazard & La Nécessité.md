@@ -1,6 +1,6 @@
-Artist: Deedrah  
-Track: Le Hazard & La Nécessité  
-Year of release: 1997  
+**Artist:** Deedrah  
+**Track:** Le Hazard & La Nécessité  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=DYzI6eptC90
 
 ## Introduction

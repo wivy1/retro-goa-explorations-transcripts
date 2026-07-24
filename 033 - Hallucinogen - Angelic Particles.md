@@ -1,6 +1,6 @@
-Artist: Hallucinogen  
-Track: Angelic Particles  
-Year of release: 1995  
+**Artist:** Hallucinogen  
+**Track:** Angelic Particles  
+**Year of release:** 1995  
 Episode URL: https://www.youtube.com/watch?v=GjeDEQG23Do
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Deflo  
-Track: Tio Mate  
-Year of release: 1997  
+**Artist:** Deflo  
+**Track:** Tio Mate  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=6xuShjLv2CU
 
 ## Introduction

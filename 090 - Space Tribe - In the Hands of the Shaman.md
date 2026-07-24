@@ -1,6 +1,6 @@
-Artist: Space Tribe  
-Track: In the Hands of the Shaman  
-Year of release: 1994  
+**Artist:** Space Tribe  
+**Track:** In the Hands of the Shaman  
+**Year of release:** 1994  
 Episode URL: https://www.youtube.com/watch?v=X8g0Ut7gE_w
 
 ## Introduction

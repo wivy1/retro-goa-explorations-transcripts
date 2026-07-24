@@ -1,6 +1,6 @@
-Artist: Eco  
-Track: U.f.olk  
-Year of release: 1996  
+**Artist:** Eco  
+**Track:** U.f.olk  
+**Year of release:** 1996  
 Episode URL: https://www.youtube.com/watch?v=e7kogvTOa0M
 
 ## Introduction

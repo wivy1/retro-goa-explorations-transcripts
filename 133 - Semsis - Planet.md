@@ -1,6 +1,6 @@
-Artist: Semsis  
-Track: Planet  
-Year of release: 1997  
+**Artist:** Semsis  
+**Track:** Planet  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=EZPdfU_w384
 
 ## Introduction

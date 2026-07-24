@@ -1,6 +1,6 @@
-Artist: Wizzy Noise  
-Track: This Is The End  
-Year of release: 1999  
+**Artist:** Wizzy Noise  
+**Track:** This Is The End  
+**Year of release:** 1999  
 Episode URL: https://www.youtube.com/watch?v=W77Q487b9Xs
 
 ## Introduction

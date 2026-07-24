@@ -1,6 +1,6 @@
-Artist: Koxbox  
-Track: Loads of Flow (Molecular Mix)  
-Year of release: 1995  
+**Artist:** Koxbox  
+**Track:** Loads of Flow (Molecular Mix)  
+**Year of release:** 1995  
 Episode URL: https://www.youtube.com/watch?v=PZ8xIRWGEl0
 
 ## Introduction

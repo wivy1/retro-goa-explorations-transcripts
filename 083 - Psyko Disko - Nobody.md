@@ -1,6 +1,6 @@
-Artist: Psyko Disko  
-Track: Nobody  
-Year of release: 1996  
+**Artist:** Psyko Disko  
+**Track:** Nobody  
+**Year of release:** 1996  
 Episode URL: https://www.youtube.com/watch?v=4t3SmJ4QZu4
 
 ## Introduction

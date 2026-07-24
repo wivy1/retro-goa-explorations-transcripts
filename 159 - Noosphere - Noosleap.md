@@ -1,6 +1,6 @@
-Artist: Noosphere  
-Track: Noosleap  
-Year of release: 1999  
+**Artist:** Noosphere  
+**Track:** Noosleap  
+**Year of release:** 1999  
 Episode URL: https://www.youtube.com/watch?v=4sfW9W4G_9Q
 
 ## Introduction

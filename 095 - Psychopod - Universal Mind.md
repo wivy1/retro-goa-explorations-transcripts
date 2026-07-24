@@ -1,6 +1,6 @@
-Artist: Psychopod  
-Track: Universal Mind  
-Year of release: 1997  
+**Artist:** Psychopod  
+**Track:** Universal Mind  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=QGvLxtiLIQI
 
 ## Introduction

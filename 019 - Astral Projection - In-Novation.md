@@ -1,6 +1,6 @@
-Artist: Astral Projection  
-Track: In-Novation  
-Year of release: 1994  
+**Artist:** Astral Projection  
+**Track:** In-Novation  
+**Year of release:** 1994  
 Episode URL: https://www.youtube.com/watch?v=Gn-450EvoFQ
 
 ## Introduction

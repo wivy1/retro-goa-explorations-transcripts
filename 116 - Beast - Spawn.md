@@ -1,6 +1,6 @@
-Artist: Beast  
-Track: Spawn  
-Year of release: 1998  
+**Artist:** Beast  
+**Track:** Spawn  
+**Year of release:** 1998  
 Episode URL: https://www.youtube.com/watch?v=kCv5QVSh0U8
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Crop Circles  
-Track: Antonomasia  
-Year of release: 1997  
+**Artist:** Crop Circles  
+**Track:** Antonomasia  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=OMB4-mkwVLw
 
 ## Introduction

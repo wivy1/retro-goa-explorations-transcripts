@@ -1,6 +1,6 @@
-Artist: The Delta  
-Track: Thing  
-Year of release: 1998  
+**Artist:** The Delta  
+**Track:** Thing  
+**Year of release:** 1998  
 Episode URL: https://www.youtube.com/watch?v=rczU7W2imMo
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Space Tribe  
-Track: So Deep  
-Year of release: 1999  
+**Artist:** Space Tribe  
+**Track:** So Deep  
+**Year of release:** 1999  
 Episode URL: https://www.youtube.com/watch?v=Li889qqJAg8
 
 ## Introduction

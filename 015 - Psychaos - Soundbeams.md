@@ -1,6 +1,6 @@
-Artist: Psychaos  
-Track: Soundbeams  
-Year of release: 1995  
+**Artist:** Psychaos  
+**Track:** Soundbeams  
+**Year of release:** 1995  
 Episode URL: https://www.youtube.com/watch?v=AmICO0heZTU
 
 ## Introduction

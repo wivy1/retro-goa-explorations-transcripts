@@ -1,6 +1,6 @@
-Artist: Shakta  
-Track: Spiritual Beings in Physical Bodies  
-Year of release: 1997  
+**Artist:** Shakta  
+**Track:** Spiritual Beings in Physical Bodies  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=Q3gemEAtYRc
 
 ## Introduction

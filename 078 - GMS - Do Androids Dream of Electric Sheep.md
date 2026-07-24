@@ -1,6 +1,6 @@
-Artist: GMS  
-Track: Do Androids Dream of Electric Sheep  
-Year of release: 1997  
+**Artist:** GMS  
+**Track:** Do Androids Dream of Electric Sheep  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=VduFQ6TmtsM
 
 ## Introduction

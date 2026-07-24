@@ -1,6 +1,6 @@
-Artist: Total Eclipse  
-Track: Collapsar  
-Year of release: 1997  
+**Artist:** Total Eclipse  
+**Track:** Collapsar  
+**Year of release:** 1997  
 Episode URL: https://www.youtube.com/watch?v=Niez8g7KGKA
 
 ## Introduction

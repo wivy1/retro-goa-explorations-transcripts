@@ -1,6 +1,6 @@
-Artist: Green Nuns of the Revolution  
-Track: Green Nunions  
-Year of release: 1998  
+**Artist:** Green Nuns of the Revolution  
+**Track:** Green Nunions  
+**Year of release:** 1998  
 Episode URL: https://www.youtube.com/watch?v=F49kCartrgA
 
 ## Introduction

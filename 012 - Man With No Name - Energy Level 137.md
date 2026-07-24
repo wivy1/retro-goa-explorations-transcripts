@@ -1,6 +1,6 @@
-Artist: Man With No Name  
-Track: Energy Level 137  
-Year of release: 1994  
+**Artist:** Man With No Name  
+**Track:** Energy Level 137  
+**Year of release:** 1994  
 Episode URL: https://www.youtube.com/watch?v=ehsiICCYFN8
 
 ## Introduction

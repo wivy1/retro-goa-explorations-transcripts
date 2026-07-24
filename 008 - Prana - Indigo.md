@@ -1,6 +1,6 @@
-Artist: Prana  
-Track: Indigo  
-Year of release: 1994  
+**Artist:** Prana  
+**Track:** Indigo  
+**Year of release:** 1994  
 Episode URL: https://www.youtube.com/watch?v=rH7ps4BBrss
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: Dynamix  
-Track: The Rezistor  
-Year of release: 1994  
+**Artist:** Dynamix  
+**Track:** The Rezistor  
+**Year of release:** 1994  
 Episode URL: https://www.youtube.com/watch?v=kyc8yfyEHPU
 
 ## Introduction

@@ -1,6 +1,6 @@
-Artist: The Pleiadians  
-Track: Zeta Reticuli (Lazy Spiral remix)  
-Year of release: 1996  
+**Artist:** The Pleiadians  
+**Track:** Zeta Reticuli (Lazy Spiral remix)  
+**Year of release:** 1996  
 Episode URL: https://www.youtube.com/watch?v=1e-ax4rqVKg
 
 ## Introduction

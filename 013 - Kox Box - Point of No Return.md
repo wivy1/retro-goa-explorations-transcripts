@@ -1,6 +1,6 @@
-Artist: Koxbox  
-Track: Point of No Return  
-Year of release: 1995  
+**Artist:** Koxbox  
+**Track:** Point of No Return  
+**Year of release:** 1995  
 Episode URL: https://www.youtube.com/watch?v=OwiP2p5_cOQ
 
 ## Introduction
