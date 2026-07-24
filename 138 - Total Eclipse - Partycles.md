@@ -1,0 +1,80 @@
+Artist: Total Eclipse
+Track: Partycles
+Year of release: 1997
+Episode URL: https://www.youtube.com/watch?v=YT4UFcEHjuQ
+
+## Introduction
+
+Hey there, goa fans! This is Mark DJ Solitare here with episode 138 of Retro Goa Explorations, my weekly series in which I share in each episode one of my favorite tracks from the 1990s goa trance psychedelic dance movement.
+
+So after last week, when I shared a video excerpt from A Total Eclipse party, as in the project Total Eclipse, not the celestial event that it was at in Japan. I realized I haven't featured the band Total Eclipse a little, you know, in quite a while in this series, and it's time to do so. And so, one of the tracks that came to mind is, I think, just one of the all-time great ones, and it's got an interesting little story. And musically, I mean, it's just as good as it gets.
+
+As I said in the previous video, when I presented this track that Serge had played by this Greek project LFOids, he was just an incredible DJ. I mean, Serge was just an absolute master, and from early on in the scene, he just absolutely knew how to sculpt a story, just amazingly. And he had access to just fantastic music, including, of course, of what he produced. I mean, he—the guy was a genius. And I mean, I'm sure he still is a genius, but we don't have the benefit of having him in our scene anymore, unfortunately. But goodness, how we have benefited from his musical brilliance,
+
+So this is a track that he wrote on his own, and you know, Total Eclipse had this agreement. It was the three of them who worked together quite often, but also in different combinations and also solo. And they had a system whereby they voted, like yay or nay to release a track, and everybody had to like it in order for a track to be released. So there were some tracks that didn't get released at the time because they didn't get a hundred percent unanimous consent. And some of those came out later on, you know, on the DAT Universe label. There's this wonderful, I think, three CD compilation of Total Eclipse Tracks that include some live material and also some tracks that didn't get put out way back then, and some of them were, you know, from this time that I'm talking about, you know, where we had the, you know, video of Total Eclipse in Gifu in 1998 with me dancing around, taking up half the dance floor.
+
+So Serge wrote some tracks on his own, waiting for a new life. Really famous one is just Serge on his own. Some tracks are Stéphane Holweck and Loïc Van Poucke. Some tracks are you know the three of them. Some you know some of them are you know different combinations.
+
+This track that we're going to listen to today is unbelievable, and I'm I'm still kind of amazed at two things. First of all, that it was only released on one compilation that I've been able to locate. The original release was on this obscure one-off, seemingly compilation that included some absolute killers, including X-Dream's "S.T.O.P.," which you know was a B-side, absolutely phenomenal track. I mean, this is just like a killer compilation, and it has this phenomenal Total Eclipse track, Partycles.
+
+Now, first of all, I'm going to say I love this title because, of course, it's a play on word of particles, like you know, subatomic particles. And we've got you know some wonderful samples, you know, in earlier tracks like The Infinity Project, right? When you bombard the electrons, the electrons do it to the neutrons, and all of that. And you know, anybody who's sort of had that micro-macro state on the dance floor, and especially dancing under the stars, we can sort of imagine what it's like that each you know individual unit of consciousness is a particle in the sort of the overall makeup of the universe, and so having it Partycles spelled with a Y is just brilliant because it's like you know, at the party, we're all different particles of this, you know, sort of grand, conscious, orchestrated, whatever this is, field that we're in. And so, brilliant title,
+
+And when I say brilliant track, I mean this is really among the best. And Stéphane Holweck told me, I remember back then, that Serge Souque wrote this in about four hours. I'll repeat that: Serge Souque wrote this track in about four hours. And he said, "I remember Steph saying, 'Oh, once Serge got started, you just couldn't stop him.' You know, he was just hyper focused. Well, I mean, he sure was.
+
+Now, the master date of this one is dated March 1997. This only came out on this compilation in 1998. Now we have, you know, there's a version, a live version of it that we can hear in the Total Eclipse at Liquid Room live set, right? The live in Tokyo 1998 that was released on Suntrip, an event that I was at, and somehow have you know no photos or no flyer from. It's so weird and so random how I just you know kept everything in some areas and not in others. But I certainly remember being on the dance floor and where I was, and you know it was fantastic, fantastic set. That was that was the time that I met Serge and Louis. That Steph had introduced me to them.
+
+But you know, so the track had been around for over a year before it was released, and then it just didn't get the wide release that I think a track of this quality should. So the master DAT also has five versions, and it's a fascinating evolution to hear how some riffs came and went, some were voiced differently, and then you know the fifth version is the one that was released.
+
+Now, possibly an unpopular opinion amongst collectors and folks who love unreleased music, sometimes the released version is the best one. Sorry, but it's true. Not Always though, and this is the important thing to recognize, right? So on DAT Records, we put out you know two CDs of Doof, where we had the album and then a parallel universe album where it was alternate mixes of all of the tracks, and that came out of the fact that back in '97, I'd been at a party and Nick handed me a DAT with an alternate mix of Destination Bom. Well, that happens to be better than the released one, and Nick now agrees. And that's the version that he plays out. So sometimes it happens that the alternate version is actually better, and sometimes not. And sometimes there's still just some interest, you know, shake things up. But you know, in terms of hearing the creative process, it's fascinating.
+
+So I've got a couple of excerpts that we'll listen to after we listen to the release track, just so you can hear a couple of you know how the sounds evolved. But when it comes to the storyline and the emotional content, that's kind of the key here. The last of the five mixes, you know, I did a I did a check, and it is you know that's the released one. It is so off the charts, sky opening, expansive, soul wrenching. In terms of overall musical and energetic content and expression, that you know you really just can't beat this. It's absolute, absolute magic.
+
+And this is what I think a lot of us experienced back in the time. And I think this is something why you know this music still has this allure for people who weren't there back then and have heard this music played out and said this is a whole other kind of musical language and expression and just overall creative expression.
+
+So we're going to listen now to the released final edit of Partycles by Total Eclipse. This unbelievable track that Serge produced somehow in four hours. And buckle your seatbelts, folks, because this is a ride, and what a beautiful one!
+
+## Commentary and Analysis
+
+Just these gorgeous. Look at that that hypnotic pattern and the elegant sound with that rough guitar and that bouncy, bouncy sort of little synth sound. All really classic Total Eclipse sounds. But this chime thing—it's just like this cosmic timepiece. Then you get that beautiful bounce, and notice how the rhythm of those chimes seems to shift. You just have these voices interjecting and coming, and just kind of growling things—it's something really about Total Eclipse. Sometimes you have this absolute elegant refinement, and then you have these sort of granular, rough edges, and there's this beautiful balance of elegance and, you know, robustness. It's one of the things I love about Arsene, and beautiful percussion. It's really quite light so far, but also cosmic, and those floaty, atmospheric sounds above.
+
+Then we get that sort of, again, that rough Total Eclipse guitar. Then beautiful bassline, just so simple. There's going to be another wonderful sound that's going to come in shortly. There we go. Again, very Total Eclipse. We've heard this in some of the earlier classics, but none of it sounds like it doesn't sound recycled at all. I mean, this is a really fresh combination of a storyline.
+
+Now, again, notice how it's building up. Just keeps building. Then we get this gorgeous, triumphant, but still slightly restrained march. It's not full on yet. And when I say full on again, I'm talking the British adjective, not what some people have called this style of hyper aggressive music. So just listen to the beauty of all of the sounds.
+
+Then, in one of those gorgeous, again evocative Total Eclipse sonorities. Then it goes up, and then it comes down, and then this is kind of a Toxic Caterpillar kind kind of a little bouncy sound. So it's just, you get this sort of stability of that bounce while all this chaos is going going on above, and then, then that voice. How many things are happening and building? Just listen how this voice builds, how the other stuff supports this expression, and where it's gonna go?
+
+I mean, here we just get this cosmic, anguished combination of anguish, joyful expression. It's like again, consciousness waking up to itself and sort of like, what is going on. Definitely an experience I had on the dance floor more than once.
+
+And then, and this that riff adding to it, right? So it's adding a little bit of impulse to the whole scenario. Get to catch your breath a little bit, and we just have sort of sort of those otherworldly, sort of almost like swamp-like animal kind of sounds coming, chirping and burping. And we have that joyful, quixotic kind of Total Eclipse riff here. This is the kind of line that Steph was so great at.
+
+Also, just listen to the listen to the interplay. It's actually two lines going on. Again, now that tension is starting to build up again. Now we have this very quirky, quixotic kind of ending. Very playful and again, sort of otherworldly. Things really wind down, quite literally.
+
+## Observations and Closing Comments
+
+I mean, really? Tell me why that wasn't released on every compilation. I mean, what a masterpiece! And again, a real sign of you know what was the passion and the drive and the creative impulse that was funding what these musicians were doing in their creative time in the studio? You know, Serge got this idea and he just went for it and he just created this unbelievable masterpiece in such a short space of time.
+
+And again, I noted how oh, you know, we recognize this synth sound from this track, and maybe that sound, you know, from others, and so on. There is nothing here that sounds, though, that this is just a cut and paste kind of track. Nothing whatsoever, and so I certainly don't want to imply that with what I said in terms of that. But you know, each project had their, you know, they had their studio set up with their unique sounds. They weren't all using these digital workstations that were, um, you know, all using the same samples and the same sounds. So they had their character, and they also had the range of you know different characteristics that they brought in terms of the tone, you know, the mood and the style of their tracks.
+
+And Total Eclipse has, for me, always been one of the ones that had the most variety. There's a few Projects who did, and they're among the peak.
+
+And you know, I just consider myself so fortunate that from the time you know I heard Serge DJing first in 1995, I remember the impression Blade Runner made on me then. But I first heard the band in 1996 at an outdoor event in Japan just before I went off to India for the first time, not Goa somehow. But and then, you know, as I've said, I've heard them how many times since, you know. But in that period from '96 to '99, I'm I probably heard them about you know between half a dozen and a dozen times, and every time was phenomenal. Every time was different, and you know, just such a unique presence and array of messages and stories that each track would tell, and also the spontaneity and the creativity they would bring to their live sets. Each one was different.
+
+So this track then is just, you know, it has those characteristics. But there's nothing old. There's nothing recycled in that sense, right? In terms of I will just, you know, toss something in there. No, it's all like familiar ingredients, but a completely new expression.
+
+Now, I was saying that you know there's five mixes on the session DAT, and you know there's a really interesting evolution that goes on. You know, there's a different bassline, you know, or a sort of one line that comes in, and then the way that the guitar comes in later on, it's also voiced really differently. So I'm just going to play a couple of brief excerpts here.
+
+So that bassline, right, is different. I like the way it gets sort of double voiced there for a second. So that's kind of neat, but I still I don't think that the whole storyline evolves quite as well.
+
+But here, now notice how we have the with that guitar, the way that's gated. But while we've got the bassline, also you know sort of going on and off like that as well. It's really interesting, and it's got that sort of you know rougher granular Total Eclipse edge. So it's pretty cool.
+
+But the track, I don't think in the earlier versions, I don't think it has that emotional release and that expansive like ah this is it that comes out in that smooth guitar riff. Uh, in terms of how it's voiced and how it's done in the final version.
+
+So while that's smooth and legato, right? The other stuff is oscillating and going in and out. That combination of textures, instead of the match, I think it carries more weight. And I think there's also just the emotion. You can feel it and hear it. And that's also, again, where the artist is.
+
+You know, they're working all of these versions. Let's do another one. Let's do another one. And the whole creative expression is building up. So you know, musically and in terms of a creative insight , it's it's pretty fascinating.
+
+I'm, you know, it might just be that, of course, I'm emotionally attached to this final version. But you know me; I also love alternate versions, and there's some fascinating stuff here. But you know, just I'm I really want to think, or what's the best? What's the most expensive? I'll keep listening, and you know maybe you'll hear an alternate version once in one of my sets sometime. But you can't go wrong with the released edition one. I mean, it's this is it's just phenomenal.
+
+I did play it at this is my first ZNA set morning in August 2015. How was that ten years ago? But yeah, it's it's it's a magical, magical track. So hats off to Serge, the musical genius who put this together just so unbelievably, and what a treasure!
+
+So why don't we listen to the whole thing without my commentary? I'm Mark DJ Solitare wrapping up episode 138 of Retro Goa Explorations, leaving you now with the Total Eclipse masterpiece Partycles.

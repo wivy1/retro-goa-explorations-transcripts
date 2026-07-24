@@ -1,0 +1,80 @@
+Artist: Wizzy Noise
+Track: This Is The End
+Year of release: 1999
+Episode URL: https://www.youtube.com/watch?v=W77Q487b9Xs
+
+## Introduction
+
+Hey there, goa fans! This is Mark DJ Solitare here with episode 147 of Retro Goa Explorations, my weekly series in which I share in each episode one of my favorite tracks from the 1990s goa trance psychedelic dance movement. So here for episode 147, we are, as we have been for the last few episodes, looking at tracks that I first came across in the autumn of ninety-eight through to the summer of ninety-nine.
+
+Had to see which direction I was thinking, and my math isn't so good. So this is one that I actually remember. Again, is on the tail end of that period, and I remember super clearly when this came into my ears. It was a fantastic experience.
+
+A little bit after Solipse in Hungary in '99, the first Ozora, at which I heard So Deep, which was the track in episode 146, which Olli Wisdom played. After Solips, I did a little bit of wandering around in Europe, and I ended up in Bordeaux, spending some time with the Total Eclipse Gang, and we had this wonderful day at the beach, you know as one does.
+
+And we were being driven. There were two cars, and one of them was driven by Cédric, known as Sidu or Manitu, a DJ and producer, who's also very good friends with Christof Drouillet, one half of Transwave, who at this point was running his own label, 3D Vision, and it was in this, you know, on this excursion, on this amazing day that Cedric was blasting us with these the most unbelievable tunes in the car.
+
+And this is when I heard the alternate mix of Transwave's, or technically Quid's, what was it called? Code S9, which I still thought was fifty-nine at the point. And I remember this one. There's only one other track that I remember super clearly, and it was the first track that I heard of by this project, and it completely knocked me sideways.
+
+And this was by the Greek project that I had never heard of, Wizzy Noise, and it was a track that would be coming out on 3D Vision called "This Is The End." And I just remembered, you know, the name Wizzy Noise when he told me, and I remembered the title "This Is The End" because I thought, like, "This is the end of it for me. This is just unbelievable," because this was a really, you know, starting to get into some of the where this music was evolving.
+
+There's so many different styles happening, right, and where it had come from and going in lots of different directions, and this had that really cyber sleek, slightly techy, technically high-paced element, you know, and flavor to it, while also having some very interesting harmonic stuff. But I just remember, you know, I mean, driving through the countryside, listening to this, you know, really cutting-edge, certainly at the time, and I think still amazing, this cutting-edge music, you know, as we're just like sort of booming down the road. If you've ever driven in France, you know what that can be like. With this music, it was really it was it was astounding.
+
+So Wizzy Noise, you know went on to produce quite a lot, and they became quite well known. And as far as I know, this was their first their first single. So two members of the project. I need to look, and I probably won't pronounce well because you know it's all Greek to me. Mihalis Gekas, Mihalis, if we're speaking Greek, known as Micky Noise, and the other half in this project, Dimitris Pantelides, known as Dimitris Noise, and more largely known as Uriel.
+
+He sadly passed away. We're just approaching the three-year anniversary of his death on March first, 2023. Micky is still active. Actually, the DAT Universe label that I'm with just released a collaborative track that he produced with Blue Planet Corporation on vinyl just last year. So, you know, he's still at work, and but this is the first track that I heard by them, and again, it just completely knocked my socks off.
+
+Now, a version of this track made it onto A CD compilation, a 3D Vision one. It is shorter, and when I scanned through it, I was like, "This is a completely different track." I mean, it's really like a very different mix. The one that's on vinyl seems to be harder to come by, and I actually had to do quite a lot of digging to find somebody who had a copy of it. So this has not circulated quite as much.
+
+And while, of course, I couldn't remember the details exactly of the track, you know, from that I heard in a car 27 years ago or whatever—I don't want to do the math—that you know, I remember the impression. And this is it. This Is The End. It's really, this is really something.
+
+So I think with all of that, we should just give it a listen, and go through what's in this beautiful track together, and then I'll let you listen to it without my commentary. So here we go, by Wizzy Noise. This Is The End.
+
+## Commentary and Analysis
+
+Love that atmospheric noise. We get some whoosh, whoosh, whoosh, sort of computerized stuff. Sounds a bit like UX, Master of the Universe, kind of inspiration here, perhaps. This broody bassline. This broody bassline. Love the rhythm of it. Again with those mysterious sounds. Really cool hi-hats. Notice the rhythm with that, as well as the refinement of the sound and that. I remember that making an impression.
+
+And that beautiful kick comes in. Notice the little rhythmic. There's a little rhythmic play with it over there in the first round, and then that cool pause. You know, really, you're like, it's like going through this tunnel as you're listening to this. Very cyber, great for driving through a city at night, more than nature in the daytime.
+
+But still, so again, is very atmospheric, right? So quite abstract, like a lot of shapes, no tune per se, but you know it's implied by the figurations and all of the sounds. Brilliant. So that extra rhythmic push there. There so again just sleek noises that those screeches again bring out a lot of some of that angst that's part of the early flavoring of goa as well.
+
+Quite a few of those little drum rolls, and a little break. So here we get some more harmonic, you know, mysterious, broody, just kind of. It's like you know, these notes create this sonic tunnel that you're traveling through. So not a tune per se, but still some harmonic play.
+
+Help that tweak, and then little key change, and another one right away. A little echoes there notice again a lot of the textures the layering is really great right how loud things are how much in the background and how much in the foreground and those sort of UX style noises really cool drive.
+
+That mantra like effect through the repetition. So you can notice quite a few more pauses in this track, than I think was the norm, right? Which would start becoming more of the norm as it became more psychedelic trance. Really brilliant engineering.
+
+I notice this voice starting to creep in here. This little granular textured element. It's getting louder still. Again just you know these harmonic parameters are being set by these note relationships there's an extra granular little bit in there, this adds a lot of texture and a little rough edge to it.
+
+Now we've got that this sort of delta-like voice as well, right? Keep in mind this is you know just a couple of years after as a child, and another delta track that was premiered this year, which we'll be talking about. Brilliant, beautiful note progression with that voice, and it's coming quite late in the track, right? So it's some new information.
+
+Just that very quick pitch change and then back to it. And then that repetition so just completely lose your lose your place chorus again. And the key here is, you know, always all of the voices work well with each other, so it leaves them a lot of freedom for the storytelling.
+
+That just completely lost count in this whole process here. And that is the end of "This Is The End".
+
+## Observations and Closing Comments
+
+Ooh, so a different kind of music, right? Than a lot of what was being made before, and this is really a big direction that our scene would take. Now, Olli Wisdom, for example, you know, he really rode the wave with, you know, where things were going.
+
+And he, one of the things he told me was that, you know, what he considered off with the retro scene was that back in the day, in '94, he played tracks from '94 and '95. He played tracks from '95 and '96. He played tracks from '96. So it was really like, you know, what was current and what was new and what was evolving.
+
+And there's a set that was recorded of Olli Wisdom in San Francisco, and I think it was 2000. And there's a set that was recorded of Olli Wisdom in San Francisco, and I think it was 2001. And it's very much like this kind of cyber techie stuff, totally different from what he was playing before. It's fantastic. I mean, it's really sleek and cyber, and you can feel his, you know, through the recording. Still, you can feel his intensity and his energy.
+
+So this is one of the branches this would become, I think. You know, that 3D vision sound, and that other producers, you know, and other labels, of course, would would also feature. It became an important part of the story.
+
+The thing for me is that you know I want all of the branches of the tree. I want you know I want that full spectrum. And then how do we make everything not just about one sound? And how do you work in all of these different flavors in a set? I think that's what I'd love to hear more DJs do.
+
+And of course you can't do that if they give you hour-long sets or even two. Can to some degree, but just not enough.
+
+So, but this, you know, that impression it made. This was, you know, it's 1999. You know, we were heading into 2000. It was really, it really felt like, you know, this it was an important time historically, and it felt like it.
+
+And our scene was starting to go in directions. You know, I remember some stuff that was being released in '99, and of course, even before that, I just hated and stuff coming on major labels, and I was like, this better not be where we're headed. It was pretty bad. And I won't name names, but you know, there's some stuff that I just heard, and I was so just unlistenable for me.
+
+This is not. This is, you know, we know where some of where this sound went. This is fantastic. It's sleek. It's got, you know, that tunnel vision cyber sound, but it's also got some really cool, you know, chord progressions and harmonic parameters, and again that beautiful, almost delta-ish chorus that I think is really important.
+
+So it was wonderful, wonderful piece. So and hard to come by. I'm not sure again if it ever made it onto CD in this version. It doesn't appear so, and that's a real shame because it's a doozy.
+
+All right. So the final note before I wrap up is that this one actually is at 147 BPM, and we're here on episode 147. It's actually 147. PM, and we're here on episode 147. It's actually 146.75, if my Traktor read it correctly. Things were not always 100% back in the day.
+
+I made a boo-boo last week with So Deep it actually wasn't at 146. It was a couple of beats slower. So here we are finally aligned at long last, our episode number and BPM.
+
+And on that note, I will sign off and leave you with the entire track without commentary.
