@@ -54,3 +54,9 @@ So, if this was released in February '96, this means this was produced at some p
 Those of you who are following retro stuff may have seen the announcement that's happened in the last little while that Frank E and Ian will be joining forces for a Koxbox and Psychopod live at ZNA in the summer of 2024. They've got all the original computerized data and are going to be reworking everything, and it's going to be something. I have two unbelievable musical minds.
 
 We will be exploring some of Ian's other work with The Overlords in the future as well. So that was a bit of a meandering presentation that goes with that incredible meandering track as well. So, I will sign off here and leave you with the whole track.
+
+## Notes from the Comments
+
+X-Dream's Panic in Paradise appeared on Phosphorescent in autumn 1996.
+
+The Great Unknown may originally have been intended as a Psychopod album; the label used Koxbox because that name was better known.

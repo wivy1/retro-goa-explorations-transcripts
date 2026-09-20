@@ -50,3 +50,7 @@ Um, absolutely magical, magical, otherworldly music. Uh, Structurally, so intere
 Um, I can't choose between this and Maya. Love them both. This is why I'm featuring it, you know, in this series as well. Um, and it could feature, you know, and could feature several other tracks in here. It pains me not to be featuring Alcyone and Elektra as well, as the other ones. I mean, it's all great, but this, this is just this kind of epic storytelling, like this Odyssey, you know, this mythological kind of intergalactic journey that the parties really used to feel like, and that we used to experience ourselves going on, and well, anyway, I could wax on forever about this sort of thing, but I will sign off so that you can hear the entire thing without any commentary and just marvel at the musical magnificence of this incredible journey and where it takes you.
 
 So buckle up, or unbuckle rather, and prepare to have a good dance, perhaps around the living room or wherever it is that you may be. I am Mark DJ Solitaire, wrapping up episode 89 of Retro Goa Explorations with the masterpiece by The Pleiadians, "Asterope". 
+
+## Notes from the Comments
+
+Asterope's first riff is identified as a detuned Novation Bass Station.

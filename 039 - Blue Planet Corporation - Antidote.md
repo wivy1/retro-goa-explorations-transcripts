@@ -40,3 +40,7 @@ I think this is a vastly underappreciated track, um, because The Pleiadians did 
 It was the same kind of lightness, and it's very similar to, in a sense, to this one. But this is the first one that I got that I knew or I saw, Blue Planet Corporation, and as I said, you know that title of "Antidote" is very much how I found this music and the scene and all of the things that went with it really were like an antidote to our dysfunctional society and our dysfunctional planet, and that this was how you know we can all get together and get along, and you know celebrate being alive together.
 
 So, at a time right now where all of that has been thrown into upheaval, again this track and I think this music, hopefully, even as we're really struggling and considering and thinking of our friends who have suffered such horrific losses. Hopefully, we can remember this kind of energy and experience what comes with that. And again, hopefully, we come together and dance again soon with these kinds of musical antidotes. So, thanks again to Gabriel for sharing all of those memories. Hopefully, I didn't mess things up when I was reading it. And check the YouTube comments below, just in case I needed to make a correction. And I will sign off, Mark DJ Solitare, and I will leave you with the complete track, "Antidote" by Blue Planet Corporation.
+
+## Notes from the Comments
+
+The Pleiadians remix of Antidote brings the original bassline forward as its main motif, effectively reversing the parts' roles.

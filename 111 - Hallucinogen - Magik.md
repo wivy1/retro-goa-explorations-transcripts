@@ -66,3 +66,7 @@ It's just, you know, it was like, okay, we're we've pushed the envelope a little
 So that was great. The track has now been released and remastered on this beauty. That contains more hits, and I was very happy to help with a couple of trivia notes on there as well, and the text inside from yours truly and beautifully remastered. It's also on the remastered version on the Twisted YouTube channel. I've used the old one from this one just to keep things sufficiently retro. But I'll link their YouTube to it as well, and the text written by me as well with some of these trivia points.
 
 But really happy to feature this track in this series because again, I just remember you know at a time when I was doing, started doing the writing for Twisted at this point, you know, all of their press releases. So I was hearing, you know, before release stuff that Simon was putting out. But this one was one. I was like, Hey, wait a second, I know that one because it came out on TIP. And ain't it wonderful? So I'll sign off here and leave you with the complete track without any commentary.
+
+## Notes from the Comments
+
+The 'where are you' sample in Hallucinogen's Magik is Riktam from GMS leaving a voice message on Simon's phone.

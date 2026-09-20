@@ -74,3 +74,7 @@ So, for whatever reason, you know, another copy of the track was not obtained, a
 I played it out at in ZNA first time I played at CNA in 2015. Nick told me that he played it at Absara in 2023. I mean. 15.
 
 Nick told me that he played it at Uppsala in 2023. I mean, it is still an absolutely astounding track and well worth listening to and tripping out to. Because holy moly, really, just peeling back the veil of what it is we see in our usual dimensional reality and moving into another one, so I will sign off here and leave you with a whole track without any commentary.
+
+## Notes from the Comments
+
+Warp Phaze appeared on a PsyHarmonix single in early 1996, before The Wizardry of Oz on Transient in September 1997.

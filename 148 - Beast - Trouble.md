@@ -48,3 +48,7 @@ And it's still, you know, I just got this kind of soft kick, I mean, not weak, b
 Honestly, I mean, you know, I listened to this a couple of times before filming, and it's just—it's so unpredictable. I mean, it's just really hard to keep a grip on the structure, which is brilliant because one of the things that's happened now, unfortunately, the scene is the music is really far too boxy, you know. And I love it when there's a clear structure. You have a sense of the proportions, and you know you have a sense of something that's coming. And then there's all these, you know, things that throw you off from that. But this whole thing just completely throws you off. I mean, it's just wild, really amazing storytelling.
 
 Both mixes. I mean, they're both absolutely incredible. So that's it with "Spawn" and the two mixes of "Trouble". We have, unfortunately, you know, the only collaborative works by Beast, Hallucinogen, Simon Posford, and Sean Williams, a.k.a. Process. But goodness me, beautiful trilogy, you know, triad of awesomeness. So I will sign off here and leave you with both mixes: the primary mix and then that CD single Psilocybin Remix.
+
+## Notes from the Comments
+
+Beast's Psilocybin mix of Trouble was not released on vinyl.

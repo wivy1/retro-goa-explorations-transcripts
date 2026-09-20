@@ -58,3 +58,9 @@ I can't wait to share. Oh boy, it's going to be one of those. Pull up a chair an
 So I will leave you now with the entire production that you can listen to without my commentary. Listen to if I can add this in now, just the layering and the combination of those more human sounds of the voices, with some of those rhythmic elements and how they all tie together, I think it's absolute genius.
 
 So here we are, Mark DJ Solitaire signing off from episode 76 of Retro Goa Explorations, and leaving you now with The Delta’s "As A Child I Could Walk On The Ceiling".
+
+## Notes from the Comments
+
+There was no full-speed X-Dream remix of As a Child I Could Walk on the Ceiling, but a dub mix exists.
+
+Asked about his solid but balanced low end in the late 2000s, Marcus pointed to two or three blue Tube-Tech rack units. The visitor tentatively remembers the model as 'CLA2A'.

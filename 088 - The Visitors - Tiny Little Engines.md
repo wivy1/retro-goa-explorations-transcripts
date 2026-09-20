@@ -68,3 +68,9 @@ I played this as a second to last track in ZNA in 2022, and for months, I had in
 Just beyond a masterpiece, and really grateful to have Andrew's beautiful insights that he shared. Thank you, Andrew, and thank you to the three great musicians for their incredibly inspired work in crafting this incredible piece of music.
 
 So I will let you hear the whole thing without my commentary. I'm Mark DJ Solitaire, wrapping up episode 88 of Retro Goa Explorations, and leaving you now with the unbelievably iconic masterpiece by The Visitors. "Tiny Little Engines".
+
+## Notes from the Comments
+
+The phrase at 26:39 in Tiny Little Engines is 'Freak out the straights'.
+
+Tiny Little Engines contains no bird samples, according to the Psy-Harmonics account. It calls the left-to-right sound at 4:51 an 'intergalactic dolphin sample'; the kookaburra sample is instead at the end of The Visitors' Capt'n Good Vibes.

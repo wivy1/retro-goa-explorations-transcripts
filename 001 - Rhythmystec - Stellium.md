@@ -68,3 +68,7 @@ Yeah, who knows on what level they were downloading something from beyond their 
 Now, on a personal level, of course, the more times you've heard a track, it's less new for you, so your nervous system has this relationship with it, which is you know not the same as hearing it for the first time. But for me, there are certain tracks that always give me a rush, give me a hit, give me a sort of a boost, and this is definitely one of them. And that's my idea for this series: is to choose some of those favorites, those tracks that really have a lot of meaning for me, that I think musically, and you know, in terms of the story, in terms of the musical content, really have a level of complexity and depth that I think rivals and supersedes a lot of what's being produced today.
 
 So that's it from me, DJ Solitaire here. Hope you've enjoyed this. Leave a comment below. What I'm going to do? Just gonna I'm going to fade out and present the whole track so that you can listen to it uninterrupted. And I hope that you will enjoy this as much as I always do. Want to hear this track? Over and out for now. See you again soon.
+
+## Notes from the Comments
+
+The prominent riff is a pitched-up guitar sound rather than a synthesizer.

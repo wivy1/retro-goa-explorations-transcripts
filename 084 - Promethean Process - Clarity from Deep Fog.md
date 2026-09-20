@@ -76,3 +76,9 @@ Incredibly inspired music making, and you know, this was their own musical langu
 So that was the first time we had heard any of us that I know of had heard of Benji, you know this Prometheus work, and then of course when Prometheus’s music started coming out, we're all like, you know, this is completely its own thing. Process we knew, you know, from that Matsuri compilation with X1, and you know there would be more that would come on different labels as well. There's another one that might be featuring in this particular season, but just an absolutely groundbreaking, jaw-dropping masterpiece of a creative production.
 
 So hats off, Sean and Benji. Thank you very much, Sean, for sharing all those phenomenal details. And wow, what a track! So I'm gonna sign off here and let you listen to of the whole thing without me blabbering over it. I'm Mark DJ Solitaire, wrapping up episode 84 of Retro Goa Explorations with Promethean Process "Clarity from Deep Fog".
+
+## Notes from the Comments
+
+Mumble's Blart is a collaboration between Sean and Tsuyoshi.
+
+Hector was involved in finding new artists for Twisted.

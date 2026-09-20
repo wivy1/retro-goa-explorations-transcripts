@@ -72,3 +72,9 @@ I mentioned last time that "Stellium" has that kind of thing going on as well. B
 But this is again a very atmospheric magical track. I think it's again not just like an I feel like putting it on track. It's like really the right mood when people are really in that very deep space, and it can be really absolute magic.
 
 So hope you've enjoyed hearing me Chat about this all-time favorite track of mine. It's definitely in the top. I can't do top fives, top tens, top whatever. These are all top tracks for me. So I'll sign off here and present the entire track, "Binary Neuronaut", by The Infinity Project. Thanks for tuning in, and I'll see you next time.
+
+## Notes from the Comments
+
+The 'Binary Neuronaut' single preceded the Yellow compilation and dates the Koxbox Wizard remix to 1997.
+
+Pretty sure' this track is from 1994 based on the date on Simon's DAT. Wizard appears to be from 1993.

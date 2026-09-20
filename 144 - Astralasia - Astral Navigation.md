@@ -122,3 +122,7 @@ Hopefully, haven't bored you too much with this exploration. And what I'm hoping
 And you know, now that we've, it's become so much of a routine. You know, the risk through hedonic adaptation, which is this experience that we have where something we experience more often becomes normalized. You know, we've become a little too habituated, I think, to go to the party and dance and listen to the music. And there's a person there, and they're playing. And like, you know, no, it's the magic. Forget about the person on the stage. Pay no attention to the man behind the curtain, in the Wizard of Oz, and just have the magic. And have the magic. The magic is also not out there. The magic is inside, and your relationship, and your consciousness, and emotional, and spiritual, and sort of full body, you know, full system interaction with the present moment, with sound, color, space, and all of it.
 
 So, on that note, I will leave you now and wrap up episode 144 of Retro Goa Explorations, and leave you with the first track that I ever hit the play button with, using the name Solitare by Astralasia, "Astral Navigation".
+
+## Notes from the Comments
+
+The sampled voice in Astralasia's Astral Navigation may come from Robert Monroe's ESP research tapes.

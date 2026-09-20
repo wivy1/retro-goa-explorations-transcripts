@@ -54,3 +54,7 @@ So I just want to play that little section of that one minute of musical content
 So I mean, you know, structurally it works absolutely brilliantly. You know, it came in at that turning point and just added something else, and then there's that other piece. So I just think it's an absolute masterpiece. I mean, the whole track is all the content's great. It's wonderful to be able to hear some extra juicy stuff in there, and what a monster track! "Ring of Fire" by Green Nuns of the Revolution.
 
 I will sign off here, and I'll leave you with the uninterrupted by me, complete commercial vinyl version of "Ring of Fire" as it appeared in early '96 on the Afterburner EP.
+
+## Notes from the Comments
+
+Live frequency adjustments were made during the final bounce, and arrangements could be performed with the mixing desk's on/off and track-isolator buttons to give the recording a rough, live feel.

@@ -56,3 +56,7 @@ I mean, it really takes you on a fantastic journey. Utterly brilliant musicians,
 And as I said, it was really tough choosing. You know, wanted to also do Space Interface or Tribal Oscillation is great. You know, "Loads of Flow" the last track. Got a great story about that one when Kuni played it, but that'll have to wait for another time.
 
 So for now, I'm going to sign off and present the whole track so that we can enjoy it without me blabbering over it. Koxbox from their debut album, Forever After. The brilliant track, "Point of No Return". I'm Mark, DJ Solitare, signing off here. Enjoy the music and see you next time.
+
+## Notes from the Comments
+
+The track was made at The Grooveyard.

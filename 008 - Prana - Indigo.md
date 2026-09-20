@@ -68,3 +68,7 @@ I played this out quite recently, just in November 2022, and I mean the place re
 Tsuyoshi Suzuki and Nick had been going to parties that were DJed by Kudo in Tokyo, particularly at the club Yellow, and Kudo was really like the master, and you know he was just on a whole other plane. I've met him and heard him, and he was just, you know, he was a real inspiration to a lot of people, and I think you know anybody who had that experience as dancers and then got into production. I think there's especially in the early years we hear a lot of that excitement and that fire. And this track for me captures a lot of it. Really captures the essence of that magical first year that I was in the scene, '94 to '95.
 
 So hope you enjoyed this. I am going to sign off here and then put the whole track on complete so that you can listen to it without any blah blah over it. So thanks again for tuning in, Mark A.K.A. DJ Solitare here. Happy to share with you now again the full "Indigo" Remix by Prana.
+
+## Notes from the Comments
+
+John Peel played an Astral Projection B-side identified as 'Enlightened Everlution' on Radio 1, after which it reached number one in the Zoom Records chart.

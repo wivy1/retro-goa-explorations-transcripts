@@ -46,3 +46,7 @@ And this has it all. You know, the darkness is offset by playfulness, the upbeat
 And this is, you know, the complexity of being a human being, you know, and a spiritual being in this human body at this particular time, and you know, in this limited, you know, time-space continuum. And so, for me, you know, music like this really captures that and gives you a chance to dance and express, you know, and release any of the stress that's around that really, I think, challenging aspect of the human experience, and to really wonder, you know, what's it like on other planets, and you know, as I experienced in that, you know, October fifteenth, 1994, in that club in Tokyo. Wow, you know, maybe this is also happening on other planets. Maybe we are consciousnesses are actually from other planets and just happen to be here right now. And this is reminding us of where it is that we actually come from. I don't know. "Another Planet".
 
 So very interesting track, one that I absolutely love, and I'm so thrilled that we got this version out. And of course, you know, Graham is a genius musician, and the absolutely wonderful track by a true musical genius with a range of styles, both upbeat and down tempo, really creative and fun and funny fellow. So hats off, Graham! Thanks for this brilliant tune, and I'll sign off here and leave you with the complete Mix 5 of the Excess Head masterpiece, "Another Planet".
+
+## Notes from the Comments
+
+Mind Rewind's charitable beneficiary in Goa was the Mango Tree organization.

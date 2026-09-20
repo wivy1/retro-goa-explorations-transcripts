@@ -48,3 +48,7 @@ And so then there's this incredible story that happens where things you know pul
 So absolute masterpiece of a track. Absolutely love it. Glad I finally got to feature, you know, Jez and Billy, who really so many amazing tracks as Cosmosis and Laughing Buddha. The reason I haven't featured them before is I actually never got a copy of the Cosmosis album at the time, and so I'm sure I heard some of those tracks, but they didn't quite connect. Of like, oh yeah, this one is by whom? And so the previous TIP single I did have from the previous season, I did get that, but this is the one that really, you know, hit, and it still does.
 
 So time to listen to the whole track on its own. So I'll sign off here and leave it for you without commentary. I'm Mark DJ Solitare, leaving you now with the wonderful creation by Laughing Buddha "Karma".
+
+## Notes from the Comments
+
+Billy and Jez worked together as both Cosmosis and Laughing Buddha in parallel. When they moved to solo work, each kept one project name.

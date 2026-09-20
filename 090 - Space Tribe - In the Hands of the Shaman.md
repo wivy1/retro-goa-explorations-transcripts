@@ -44,3 +44,7 @@ So again, you know, this might really be from '94, and only released in, I belie
 And also noticed that you know a lot of the tracks didn't have this particular flavor because they weren't made at Butterfly Studios and they weren't made with Postford. And Ollie was developing his distinctive sound of you know, so there's some Lighter textures and quirkier kind of stuff, and much more high-paced, but also some slower stuff, right? "Flower of Life" on here, one twenty-five, "Atomic Pow Wow", one thirty-two. So you know, there was always that range—the range of flavors, range of styles, and also the storyline on an album. So I'll probably feature another one from here, there are too many things. Again, you know, I can do two years of programs just on one season, but we'll figure it out.
 
 I'm Mark DJ Solitare, going to wrap up episode 90 here of Retro Goa Explorations with that classic from Space Tribe "In the Hands of the Shaman".
+
+## Notes from the Comments
+
+In the Hands of the Shaman uses voices attributed to Humphrey Osmond, Albert Hofmann and Christopher Mayhew from the BBC film LSD: The Beyond Within.

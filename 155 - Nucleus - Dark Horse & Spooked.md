@@ -46,3 +46,9 @@ I mean, as I said, these are the triplets we want to trance. These three brother
 So again, I think you can understand why listening to those two, you can hear the relationship between them, and they each have, you know, also some very different characteristics, and just absolutely Exquisitely beautiful. It was their track "Superluminal" on "Order Odonata 3 on Dragonfly" that first introduced me to them. Also great tracks, but these two, I think, are the pinnacle. They absolutely stand on their own. I think among the best releases of that year, absolutely, and well worth revisiting and rehearing.
 
 And you're going to do that now when I zip up and present both tracks without any commentary. So I am Mark DJ Solitare wrapping up episode 155 of Retro Goa Explorations and leaving you now with two tracks by Nucleus: "Dark Horse" and "Spooked".
+
+## Notes from the Comments
+
+Nexus was Joe Bewes on his own, not the full Nucleus group. The project released Exo-Somatic and Logic Bomb on a 12-inch through Aquatec Records.
+
+Nucleus's Dark Horse appeared on Future Navigators 1 (MDMA Music) under licence from the main EP release on Atomic Records.

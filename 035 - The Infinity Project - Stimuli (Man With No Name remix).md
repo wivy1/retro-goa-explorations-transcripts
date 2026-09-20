@@ -40,3 +40,9 @@ When it comes to electronic music and what we often hear, I mean, right now what
 So, for the samples, one of the samples, the main one about the about bombarding the electrons, is from a Cary Grant movie, and let's just listen because they actually adjusted that sample in the track. Tell me, Professor, do the neutrons bombard the electrons, or do the electrons do it to the neutrons? Right. So you don't hear the whole sentence there, but we do hear that pretty cool sample with Cary Grant from a 1951 movie called People will Talk. Well, there is talk in decades later in this fascinating goa trance track. So I'm not sure who said gave the sample of float into the world of the spirits? I don't think it was him, but in any case, that little bit about bombarding the electrons was carried on.
 
 So, so there we go. Phenomenal, I think, somewhat overlooked remix of The Infinity Project masterpiece, "Stimuli", by the ever brilliant Man With No Name. One that again, just having heard it at that party, beautifully placed by Kuni as he always did with his track selection near the end of the party. So you know, as a morning track, unfortunately indoors, but you know, outdoors very effective. I just played this at Apsara as well because I just you know been thinking about because of this series, you know, some of the tracks that I think are a little less heard that I remember distinctly, and it really worked with the sunset time I was playing. I sounded great on a big system, as always. So kudos, as always, to The Infinity Project and to Martin Freeland, Man With No Name. I will sign off here to leave you with the entire track.
+
+## Notes from the Comments
+
+The voice at 32:10 is identified as Cary Grant.
+
+The Man With No Name remix of Stimuli was released on Perfecto Fluoro in 1995.

@@ -56,3 +56,7 @@ So many elements that are just, again, you know, really stand apart, even within
 That's one of the things that I really love about the old goa sets. You're making this stuff that, in a sense, there's such difference. How do you get everything to fit together well? And then, ideally, that's what the DJ is able to do. And that I think really is part of how it is that everybody on the dance floor gets along so brilliantly together.
 
 So, so there we go—an absolutely brilliant one-off masterpiece by Simon Posford and Youth, and for the record, Gus Till. A truly unique production, which I will let you listen to without me blabbering over it. So I'm Mark DJ Solitare, leaving you now with the masterpiece by Mandala "Utopia".
+
+## Notes from the Comments
+
+The vocal sample in Utopia is Tibetan; Mark reports that Gus confirmed the language to him.

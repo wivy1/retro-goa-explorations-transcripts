@@ -58,3 +58,9 @@ This is such a unique sound, structure, story, and scale—not just the scale wi
 And so, what was interesting was how much of the crowd came out from the tarp, and they were drawn into that space where there was that direct connection under the stars. I found that interesting, and this is the kind of music that you know you want to be looking at the stars and you want to be sort of feeling your feet on the ground while you're connected to the great beyond, that which is seen and that which is not seen.
 
 So, big, big stuff. I will leave you now with the complete track without my commentary, and you can enjoy the glorious magnificence of this absolutely cosmic creation. I'm Mark DJ Solitare signing off episode 54 and leaving you with the complete track by The Pleiadians: "Time Dilation".
+
+## Notes from the Comments
+
+A 16-minute version of Time Dilation is identified as the Etnica Morning Mix.
+
+Time Dilation's CD version is hotter and more 'crunched' than the vinyl mastering.

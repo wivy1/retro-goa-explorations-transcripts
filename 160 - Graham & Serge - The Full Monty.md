@@ -78,3 +78,9 @@ And so, you know, this has continued to be just one of my go-to favorite touchst
 You know, it sort of fits with the '98-'99 season because that's around when I got it. You know, several years, you know, four, three, four years after it was produced, and it is a beauty. So hats off to Graham and to Serge for this masterpiece.
 
 Pretty long track, and you're going to get a chance to listen to it again now without my commentary as I sign off. I'm Mark DJ Solitare, wrapping up episode 160 of Retro Goa Explorations, and leaving you now with the monster magical musical masterpiece by Graham and Serge, "The Full Monty".
+
+## Notes from the Comments
+
+The Full Monty's distortion is attributed to an overcompressed, distorting main two-bus.
+
+Unreleased early mixes of Excess Head's Expo were darker in flavour. It seems Expo and Graham & Serge's The Full Monty were produced around the same time.

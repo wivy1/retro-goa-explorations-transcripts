@@ -58,3 +58,11 @@ Great mix. I still prefer the original, largely because of you know emotional re
 So, so this is just a longtime favorite. Again, I'll normally call it 59, or I might call it Code 59, but S9, "Code S9" is the original title. Masterful creation by Dado, a.k.a. Deedrah. If we want to real name, Frédéric Holyszewski, if I can actually pronounce that properly. Hats off, Maestro. Just such an incredible, incredible track, and we're going to listen to it now without my commentary.
 
 So I'm Mark DJ Solitare signing off on episode 106 of DJ Solitare's Retro Goa Explorations and leaving you now with the complete track by Quid Cypher-O Deedrah Dado, however you want to call them, "Code S9".
+
+## Notes from the Comments
+
+Quid's Code S9 was technically the first Deedrah track.
+
+The bass on Code S9 was made with a Juno-106. The patch was not written down or photographed.
+
+Quid's Code S9 and Shakta's Lepton Head (Deedrah remix) were written in the same week.

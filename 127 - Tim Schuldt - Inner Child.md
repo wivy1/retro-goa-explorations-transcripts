@@ -40,3 +40,7 @@ So I was a huge fan of Tim Schuldt for producing this particular kind with this 
 So, this has long been a favorite. What's interesting for me is, you know, animatronic. The other side—that was the title track of the single, so that was intended to be the main track. For me, this is the main track. This is the one that I always gravitated towards. The other one is fantastic, absolutely, but I don't know what it was. Whether it's, you know, just the name, "Inner Child", and what that represents, and you know, what we're all getting in touch with, you know, getting more and more into our core as we go through these transformative dance experiences, or if it's just that real Wagnerian operatic, dramatic, operatic, big scale, multidimensional aspect of this track. But whatever the case may be, hats off, Maestro Schuldt, and I'll sign off here so you can hear the whole track without me talking over it.
 
 So I'm Mark, DJ Solitare, wrapping up episode 127 of Retro Goa Explorations, and leaving you now with the Titanic creation by Tim Schuldt, "Inner Child".
+
+## Notes from the Comments
+
+Tim Schuldt and Guido Venier made the Kind Of Intelligence 12-inch Pulsation / Eurith, an earlier acid-techno project.

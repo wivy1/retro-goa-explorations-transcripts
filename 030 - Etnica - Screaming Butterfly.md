@@ -48,3 +48,7 @@ I mean, of course, let's face it. You know, Green Nuns "Ring of Fire", which we 
 Again, those very clear memories of Kuni playing that. I was at the back of the space and just sort of really seeing the whole scene and just, you know, really seeing the really tribal, uplifting, otherworldly kind of atmosphere that this amazing track created. It's really one of my probably more recent favorites. I've just come to appreciate it more and more in recent years as I've been listening more closely.
 
 So I will sign off here and present the whole track so that you can enjoy it in its full splendor without me talking over it. I'm Mark DJ Solitare, and I'm leaving you here with Etnica's masterpiece, "Screaming Butterfly."
+
+## Notes from the Comments
+
+Kuni was the main DJ for the Equinox parties and the Tokyo Techno Tribe label. Their events prohibited photography, leaving little visual documentation of him.

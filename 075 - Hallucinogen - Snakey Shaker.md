@@ -72,3 +72,7 @@ And I think for the producers as well, those who are pushing boundaries and push
 I think a little bit overlooked perhaps, because of course you know Gamma Goblins got a lot of play. The second mix here, I actually prefer the first mix. There's all kinds of great stuff on here though. Dimension, absolutely phenomenal. Horrorgram is I think my other big favorite from here. But "Snakey Shaker", all time masterpiece, and one that I'll let you listen to now without me counting and gesturing and speaking over it.
 
 So I'm Mark DJ Solitare signing off here from episode 75 of Retro Goa Explorations, leaving you now with a complete masterpiece by Hallucinogen "Snakey Shaker".
+
+## Notes from the Comments
+
+Snakey Shaker's formant/vocal-type leads are attributed to Eventide effects processors.

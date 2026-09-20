@@ -44,3 +44,9 @@ I'm not again. I'm not sure how much this was played out. I played it a lot. I a
 I neglected to mention also that another project for which he was really known was Mandra Gora, and there was that very famous track, the final track on the first TIP compilation that was released at the end of '94, but the track comes from earlier. "Everything Is Going Fine". Really legendary one, and that's Johann.
 
 So anyway, I'm really glad that I got to feature this finally because you know, as I stated, there's so many artists whose music was you know coming out at each of these seasons. We were hearing more and more, either new artists or established artists coming out with new stuff. And this was, you know, my first exposure. This album was my first exposure to that much Johann, other than "Stranded". And then, of course, you know, I had that DAT mix of this track before, and can't remember who gave it to me, but might have been Crispo from Return to the Source, who did, who was in Medicine Drum. But regardless, I remember being like, "Space opera, I love it." So I am going to sign off here and leave you with the complete track without my commentary.
+
+## Notes from the Comments
+
+Cubase key quantization was used to make goa patterns by constraining improvised keyboard playing to a selected key.
+
+Howling's rising effect is a Shepard illusion made with filters rather than the notes themselves.

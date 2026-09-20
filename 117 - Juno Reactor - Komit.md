@@ -62,3 +62,11 @@ So, so there we go. Absolutely phenomenal track. Thank you, Ben, for the insight
 Desert Island. There was a program on the BBC, I think it's still running, called Desert Island Discs, where people had to choose. They had lots of famous people, musicians, and not. They had to choose ten records that they would take to a desert island if that's all they could listen to for the rest of their lives. This is one of them.
 
 All right, folks. Thanks for tuning in. I'm Mark DJ Solitare, wrapping up episode 117 of Retro Goa Explorations. I'm leaving you now with the masterpiece by Juno Reactor, "Komit".
+
+## Notes from the Comments
+
+Komit's FS-1 Cyclosonic Panner was repeatedly hired from FX Rentals, then bought from them for £120 when digital panners became available. Its distinctive effect was the phasing in the centre; the Universal Audio emulation does not reproduce that in the same way.
+
+Komit was mixed on a Raindirk Symphony desk. The mix took a long time; the desk's EQ and low-end its strengths.
+
+The TC 2290 delay also has a panner, and Juno Reactor's producer particularly liked panners that went out of phase.

@@ -78,3 +78,11 @@ All right. So the final note before I wrap up is that this one actually is at 14
 I made a boo-boo last week with "So Deep" it actually wasn't at 146. It was a couple of beats slower. So here we are finally aligned at long last, our episode number and BPM.
 
 And on that note, I will sign off and leave you with the entire track without commentary.
+
+## Notes from the Comments
+
+The Wizzy Noise recording featured in episode 147 is Dark City, made in 1998 and inspired by the film Dark City. This Is The End was the second track made in that series and the vinyl B-side.
+
+Dark City was mislabelled on the vinyl's label-text side and in some collectors' DAT copies.
+
+Wizzy Noise had a Super JV at the time of Dark City. The sound at 6:02 may be the 'Chronos' preset from Roland's SR-JV80 Vintage Synth expansion.

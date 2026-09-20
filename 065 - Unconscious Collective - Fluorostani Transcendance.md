@@ -44,3 +44,7 @@ Now the whole thing for me is always with any sound, and this includes all of th
 Um, one of the challenges can be, and I think it started not just creeping into DJ sets. I mean, a lot of DJ sets are just like this nowadays. Everybody plays, you know, a one-sound kind of DJ set. I would probably only put one or two tracks that's got this kind of mayhem in a set, but it depends again on the scope of the party, what time of night I would be playing, and so on. So, you know, this combination of qualities—that's kind of what I'm always looking to. And you know, what's the next combination? What's the feature or the riff or whatever that's going to lead into the next one, which might not have all of the characteristics of the previous one. I think people tend to sort of match on a few too many characteristics, and then things can get same same. But you know, nothing same same about this track.
 
 So I am going to leave you now with Unconscious Collective's "Fluorostani Transcendance". You can listen to the whole thing without my commentary. I'm Mark, DJ Solitare. Thanks for tuning in. See you next time.
+
+## Notes from the Comments
+
+Phreaky's Tornado was an influence on Fluorostani Transcendance.

@@ -52,3 +52,9 @@ And as I named in a previous episode, you know, if you imagine that each melodic
 You could, in terms of when I would play this, I would probably play this. You know, it would be dark. Wouldn't be the first part. Well, very first part of the party, maybe. I'm seeing this more sort of middle of the night. I would want to be under the stars personally for this. Maybe before dusk. Not sure. You know, this isn't quite a play. This in the middle of the day track. You know, All of that undulating and everything—it really sounds like the sounds of space and the planet breathing. And you know, as we're dancing and massaging our feet and massaging the planet with our feet as we dance on the earth. So you know, it's got a lot of power and depth, and it's still really simple and it's celebratory despite being deep. Just a magical, magical track. So, hats off, gentlemen. Absolutely love this one.
 
 And there we go. Okay, so that was "Astral Way" by Etnica. I'm going to sign off here and put on the track without me talking over it, so you can enjoy the full masterpiece of this great production. Thank you for tuning in, Mark, A.K.A. DJ Solitare here, and I'll see you next time.
+
+## Notes from the Comments
+
+Intense Visitation was withdrawn over copyright issues and Astral Way took its place on the final release.
+
+Tribute was initially the B-side of Intense Visitation; the latter stalled after promos because of sample clearance, so the older Astral Way was substituted and Tribute became the A-side.

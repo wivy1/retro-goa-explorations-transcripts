@@ -54,3 +54,9 @@ I mean, hey, yeah, you know they are both great, but there's that extra content 
 So as I said, the place exploded when I played that one at ZNA. I'm just gonna put a little clip here just so you can see a little bit of the mayhem. I mean, hey, it's a pretty kicking track, and it is really interesting. I think you know that dropping the speed down sometimes, and if you have a track that builds up in intensity but the BPM is lower, it creates this tension that needs to come out and express. And you know, of course, the musical content has to be there. It's not just—it's never just BPM. It's really all multiple factors simultaneously.
 
 So, so there we go. I'm going to sign off and leave you with both versions of that track.
+
+## Notes from the Comments
+
+Youth reportedly left Butterfly Studios in 1997 because he considered the scene over.
+
+The 'dance of light' sample is present in the Hallucinogen remix of Lunar Juice, but is less prominent under the added effects. The same sample was later used in Battle of the Future Buddhas' Lord of the Dance.

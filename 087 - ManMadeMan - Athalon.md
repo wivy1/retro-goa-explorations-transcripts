@@ -40,3 +40,9 @@ And I think again, that was, you know, what really struck me in the early events
 So, so as I said, right, ManMadeMan worked a lot with Tristan together, I think it was Leamington Spa, where they were all living. Part of this crew, lots of parties out in Birmingham, and so there was this mutual shared, you know, these similar sounds that we hear. Chicken and egg, don't know who came up with what first. With some of those, but there was some that was like, I'm interested in using that sound, and you know, he got it from them, they got it from him. None of that ever mattered. These people worked together, they evolved together, and I really wanted to feature Sonya Bailey and Paul Baguley in one of their solo, so to speak, duo tracks. It was really hard, as between this and "Camouflage", which is just like incredible. Might have to feature that as well, because so much good music. But this is the one that I remember was like, ah, not just with Tristan. Got to hear them on their own, and just such a great morning track that I really need to put back in my folder.
 
 And just as I was listening, I was like, I know a couple of good tracks that would go with this one. So stay tuned, maybe for another set. But in the meantime, I'm going to sign off here shortly and leave you with the complete track without my commentary, so that you can enjoy that brilliance and dance around your living room or wherever you may be.
+
+## Notes from the Comments
+
+Hex is the title of ManMadeMan's Hex E.P. on Matsuri, not a separate project name. Paul's surname is Baguley, not Bailey.
+
+The Masa who lived in Vancouver and belonged to the Solstice crew was a different DJ from the better-known Masa. The Nelson sunrise-set recollection concerns the Vancouver/Solstice DJ.

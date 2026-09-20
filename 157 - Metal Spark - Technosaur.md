@@ -58,3 +58,7 @@ You know, I've always thought our scene is the music that people want to hear. T
 And so, you know, when it came to breaks in terms of the percussive kind, nobody ever outdid, to my knowledge, and certainly my experience, Metal Spark and Lorenzo's earlier projects, Sibilant, and whoever was in that sort of realm. It's just absolutely phenomenal the way it's just seamlessly fuses the best of psychedelic electronic music and is so completely entrancing. So, bravo, gents! Another wonderful one.
 
 I will sign off here and leave you with the entire track without commentary, so you can really enjoy its interdimensional splendor.
+
+## Notes from the Comments
+
+Syrinx was Patrice's project; Tremolo Heaven was one of its 12-inch releases.

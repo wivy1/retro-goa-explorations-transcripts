@@ -50,3 +50,27 @@ But I just remember hearing that and getting a big system, on a big system in th
 And there we go. So we're gonna have to try to play this in a set sometime soon. Last time I remember hearing anybody play it, it has been too much. Rike played it at ZNA in 2017 when she started her set. By the way, I mean she started off with Juno Reactor's, the ambient track from the I think it's called Landing from Transmissions. In the second she put on, you know, the first note hit, Everybody just kind of broke up and went to the dance floor. And remember, she had this somewhere in the first few tracks, and brilliantly. Next, I was like, I'm always curious how somebody's going to mix this one. I'm curious. I'm going to end up mixing it.
 
 But anyway, it is a track to be heard and to be played, and Paul Jackson, musician, to be really admired and remembered. And there we go. So I'm going to sign off here, Mark, aka DJ Solitare. Thanks for tuning in, and I'll leave you now with the complete track "Quadsep" by Voodoo People.
+
+## Notes from the Comments
+
+Quadsep appears as 'Quadstep' on Trust In Trance's Goa Vibes Vol. 1.
+
+Moonshine's intro is a Nord Lead part faded in and out of an Ensoniq phaser/delay algorithm, with high delay feedback and high phaser resonance. Up to two effects units were used (either the DP2, DP4 or both).
+
+X-Dream made extensive use of the Ensoniq phaser/delay algorithm also used on Cosmosis's Moonshine.
+
+The metallic sound at 2:10 in Snarling Black Mabel came from a Kurzweil K2000 through an Ensoniq DP4 phaser. The phaser's centre/cutoff was moved smoothly or quantized to sixteenths; resonance was raised for the jumping movement and reduced for slower sweeps to avoid excessive feedback during mixdown.
+
+Jaia, Cosmosis, Kris Kylen and Ot were Roland JD-990 users.
+
+Shadow Dance was made by Andrea Rizzo, Carlo Paterno, Maurizio Begotti and Max Lanfranconi in the Soundbuster Studio Live Room. Maurizio began the track and the others joined later. The setup was the same as for Trip Tonite: Korg MS-20, Roland SH-101, Morpheus and an Akai sampler. It followed their visit to the Voov Festival and the Italian EP's 1995 release.
+
+The Other Side of Reality was written by Joti Sidhu, Maurizio Begotti, Max Lanfranconi and Carlo Paterno after sharing a Dragonfly booking at Brighton's ZAP Club around 1995-96. They finished it in a few days at Joti's studio in his mother's Brighton house, using an Akai S1000, Roland JD-800, SH-101 and Ensoniq DP4, plus Etnica's Korg MS-20. Joti's mother kept them supplied with curry.
+
+Intense Visitation of Energy was Etnica's first track using the Kurzweil K2000. The acid sound at the start came from the K2000, not a TB-303, which they say they never had. It was made at Soundbuster Studio in Milan in 1995, around the time of Astral Way and Tribute. The reverb came from a Lexicon, used in the studio alongside an Eventide.
+
+Intense Visitation was inspired by Emmanuel Top's Turkish Bazaar and the Attack Records releases the group was listening to. They aimed for a similar atmosphere in a goa style, had just signed to Blue Room, and worked at night on several tracks at once with the studio's main room to themselves.
+
+The first mix was darker and more tribal, titled Visitation of Energy (Nighttime Mix), and was the version Gil chose for his mix. At least one further, more melodic mix was made.
+
+A 1997 X-Dream live video is offered as a gear-identification lead: possibly a 303, a Yamaha CS-series instrument, a Korg Prophecy, an Akai sampler and a DP4.

@@ -58,3 +58,9 @@ But I just think a gorgeous one came out on you know this really, you know, unus
 Now, I'm not saying I'm never going to sort of go back and present any tracks from the '94 to '95 season. There are several that I've missed. I just really want us to start, you know, get things moving along. And I figured that perhaps, you know, six months and 24 tracks might be a good little organizing principle for us to then move on to what's next.
 
 Alrighty, so I am going to sign off here and then leave you with the entire track, "The Great Bear" by North Central Positronics.
+
+## Notes from the Comments
+
+Simon wrote a tune to see if he could make something as commercial and cheesy as possible, and he did. It became the  hit song Hot 4 U (Club Mix).
+
+Beast paired Simon Posford with Sean, also known as Process.

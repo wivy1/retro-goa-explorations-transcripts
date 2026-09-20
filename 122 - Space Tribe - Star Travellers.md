@@ -54,3 +54,9 @@ And this is one of the challenges that I think we're facing in the scene now. Is
 How do we not have things be same old, same old? But hey, there's certain aspects that are familiar, but there's always something that's new. So it's a little philosophical extrapolation from you know what it is that I got from this scene and from especially that magical period in the 1990s when it was all really new and each occasion really did have its own unique flavor and each track also seemed seem to have its own unique components that triggered a certain psycho-emotional physical response in the dancers and listeners.
 
 So, I will sign off now and leave you with the complete track and Mark DJ Solitare, leaving you now at the end of episode 122 of Retro Goa Explorations with Space Tribe's "Star Travellers".
+
+## Notes from the Comments
+
+The samples about hands in Space Tribe's Star Travellers are from the film The Trip.
+
+Olli's Space Tribe sound comes from a Kurzweil K2000, Roland JD-800, Bass Station and FM sounds from various Korg synths.

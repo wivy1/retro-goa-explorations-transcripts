@@ -60,3 +60,7 @@ I mean, just beautiful, right? I mean, this is one of the fantastic things about
 So, hats off to Simon Posford and Chris Deckker for these two wonderful creations. There's a third track, a downtempo one, that's on the Eclipse compilation on Twisted Records. It came out in '98. I think it's called Invocation, another fantastic one. And at the time that this came out, I remember saying to Chris, "I was like, I hope you guys do some more." And he's like, "Oh, you know, you know, I really, I want to." And you know, he had plans to, and unfortunately, didn't happen. And you know, thank goodness we have the ones that we do.
 
 So I wanted to feature both today because I just can't choose between them, and I think that they're both really a welcome reflection on some of the musical range that we've got available in our scene and some of the beauty that's been created. So, on that note, I will sign off and I'm going to present both tracks one after the other without my commentary. I'm Mark DJ Solitare, wrapping up episode 134 of Retro Goa Explorations, and leaving you now with the two dance tracks by Anubis, "Rites Of Ra", and "Temple Of The Moon".
+
+## Notes from the Comments
+
+The vocal heard around 22 minutes in the Anubis episode is identified as Neera's voice from Sacred on the first Return to the Source compilation.

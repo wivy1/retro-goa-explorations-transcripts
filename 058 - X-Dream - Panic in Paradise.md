@@ -60,3 +60,7 @@ And of course, you know, it stood out a little bit because it was improperly cue
 So there we go. X-Dream – "Panic in Paradise". Bravo Jan! Incredible to know that he wrote this one on his own. It's a masterpiece. So many masterpieces. Again, this will be the challenge when you know there's how many episodes that I can do realistically here, and there's so many amazing tracks by these great artists to feature. So I've definitely got in mind some other ones for later, more when we get into '97 and '98, of course, several. But that's it for now.
 
 So I will sign off, and I'll leave the entire track for you to enjoy with that full, long, atmospheric ending and all those incredible bits and bobs. And we'll see if it gets you whooping and hollering in your living room or wherever it is you may be. So, thanks for tuning in. I'm Mark DJ Solitare, leaving you now with the complete "Panic in Paradise" by X-Dream.
+
+## Notes from the Comments
+
+The TIP 12-inch of Panic in Paradise preceded Phosphorescent in mid-1996.

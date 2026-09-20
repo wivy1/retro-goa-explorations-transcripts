@@ -70,3 +70,7 @@ But nothing's created in a Vacuum, right? There was always inspiration. Everybod
 I do remember that Simon let Oli know about this track and gave it to him, and Oli played this at Solips in 1999. I remember that one. So, Yeah. Anyway, pretty wild, interesting, basic 1994 track, but certainly has that oomph. But I think nothing really beats the oomph of that "Nocturnal Chainsaw Kerfuffle" that we heard. Real power.
 
 So you're going to get to hear it now as I wrap up and stop talking and let you hear the whole thing without my commentary. So I'm Mark DJ Solitare, wrapping up episode 104 of Retro Goa Explorations, and leaving you now with the Infernal Machine's gorgeous, celebratory, dark, broody, expansive, explosive, uplifting, "Nocturnal Chainsaw Kerfuffle".
+
+## Notes from the Comments
+
+Simon incorporated parts of Sulfurex's Point Break into his live mixes of Nocturnal Chainsaw Kerfuffle.

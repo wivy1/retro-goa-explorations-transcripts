@@ -76,3 +76,7 @@ I mean, really. Um, what a track! I just love that it ends with a thank you. I m
 Still explodes, and it's just it's an all time classic. You know, of course, it sounds different now because everybody's heard it how many times. But you know, for me, when I play it, I really hold and remember the whole experience and the whole, you know, the gratitude and the magic that was part of, you know, really back then, I felt, you know, the continual, ongoing revealing of the evolution of this musical language and our experience of it and the exploration of consciousness through these events and how we were, it felt like writing history, which we are in every moment anyway. We're just kind of, you know, this gave a framework where it was that much more palpable, you know.
 
 And what a great title, isn't it? "Travelling at the Speed of Thought", not light. What would it be like if, you know, we did operate like that? One wonders. In any case, delighted to be back in the saddle here with you. Episode 101, devoted to one of my all-time favorite tracks, and the first—not in sequence, right—that I came across, but the first of the ones that the many great tracks that I came across in the '97 to '98 season of this incredible musical scene. So I will sign off here to leave you with the full track without my commentary.
+
+## Notes from the Comments
+
+Travelling at the Speed of Thought's first worldwide CD appearance is identified as DJ Greg Staikos's Greek compilation Trance Experience Phaze 4 in 1998, following the Blue Room Delta EP.

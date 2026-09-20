@@ -58,3 +58,7 @@ So, so there we go. I will sign off here and let you hear the track. Only I sugg
 I might be reporting from the field in Europe. We will see, but in the meantime, everybody have a safe period while we're offline. From these regular episodes, we'll Resume sometime later in August, and we'll see you then.
 
 In the meantime, I'm Mark DJ Solitare wrapping up episode 165 of Retro Goa Explorations, and leaving you now with Etnica's masterful “Merkaba”.
+
+## Notes from the Comments
+
+Merkaba's sample is from Independence Day.

@@ -58,3 +58,7 @@ And you know, now in these longer festivals, I mean, this is a great afternoon t
 I've had this in my a couple of playlists for some of my recent sets, and unfortunately, I haven't. It just wasn't the right time to play it, and I need to. So I'm hoping that I will be playing outdoors. It's just the right time to be able to put this one in, because it is all about right track, right time, and this is definitely the right track for a certain right time.
 
 So, so there we go. Such a beauty, really, you know, as beautiful to listen to outdoors as it is at home. And I will sign off here and leave you with the full track.
+
+## Notes from the Comments
+
+Blue Room's Simon Ghahary sought out Spectral after hearing their 1994 debut on Trans'Pact sublabel Subliminal, catalogue S.04. Bizarre Planet was licensed from that release.

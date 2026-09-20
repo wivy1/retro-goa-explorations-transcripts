@@ -44,3 +44,9 @@ So, so there we go. I'm glad that I waited. I almost featured this track a few w
 And to me, I'll just add also, by the way, that the way things fade in and fade out, and the way some sort of elements come in and out, it sounds to me like this is a desk live mix. You know, you know the way sort of things are fading in and fading out, and then you know there would also be. I saw Simon Posford do these a lot, right? And then you know everything's looped, and then you just also sort of hit, so it comes in at whatever volume you've got it set, and or you just fade everything in, and it sounds to me like one of those live desk mixes that a lot of artists would do back then. But whether that's it or not, I don't care. This Anatomae Fabricus mix of "Starbuck" by the Sunkings is a masterpiece. We're not worthy. Thank you, gentlemen and ladies, if they were involved.
 
 And I will sign off now for episode 105 of Retro Goa Explorations. I'm Mark DJ Solitare, leaving you now with the full track in all its magical glory by the Sunkings "Starbuck" the Anatomae Fabricus Mix.
+
+## Notes from the Comments
+
+Sunkings' Hugh Ashton was also in the new-wave band Hard Corps.
+
+Goa Experience is identified as another alias of Asia 2001's Gilbert Thevenet, who composed Star Chime under that name.

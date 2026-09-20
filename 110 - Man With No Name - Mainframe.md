@@ -36,3 +36,7 @@ Everybody loves him, but I think it's very easy to get pigeonholed in any scene.
 So you know, there there's all these different moods and phases to the journey as you go through this wave of, you know, of the musical, you know, exploration with a journey, ideally through a party, and through the you know whatever journey one is on. And this, for me, just hits because it's so you know it has those elements that we could recognize again from a club setting, and then you know the aliens come in and just say not so fast, and just really blast you, and at a slightly slower pace. If memory serves correctly, it's 138 BPM. So you know not as fast as the music generally is now. Let me tell you, people go wild for this one. It's, you know, I don't want to say secret weapon, you know. Apparently, you know, it's one of my tracks that I'll pull out occasionally, and not everybody's heard this because it's been relatively obscure. Now, maybe more people will. Justly deserved an absolute masterpiece by the man, Martin Freeland, Man With No Name.
 
 So, so that's it for episode 110. I will sign off and let you hear the whole gorgeous, mind-bending production on its own. I'm Mark DJ Solitare, wrapping up episode 110 of Retro Goa Explorations. I'm leaving you now with Man With No Name's, utterly cosmic "Mainframe".
+
+## Notes from the Comments
+
+The Japanese edition of Man With No Name's Earth Moving the Sun includes Under Influence as well as Mainframe.

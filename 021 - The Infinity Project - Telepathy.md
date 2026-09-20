@@ -48,3 +48,7 @@ So just listen for that sort of atonal, sort of like radio signal kind of interf
 I did a side by side, you know, got the waveforms up, got them totally perfectly lined up, and I listened to them playing through simultaneously, and there was absolutely no difference in the structure of the track, just with that voice. And so I thought that was kind of interesting.
 
 So I'll sign off here, DJ Solitare, Mark here, and leaving you with the two very slightly different and both absolutely phenomenal mixes of The Infinity Project's masterpiece, "Telepathy".
+
+## Notes from the Comments
+
+The sampled voice is Deanna Troi from Star Trek: The Next Generation, episode 'Night Terrors'.

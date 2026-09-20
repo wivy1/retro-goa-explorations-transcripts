@@ -64,3 +64,7 @@ Really, as I've said before, it's just almost like a sonic representation of wha
 Just a masterpiece by Joti Sidhu of Psychaos, an artist who, of course, I just have Tons of tracks of his that I want to feature in this series. I don't know when I'm going to get through everything, but there we go. First one that I remember of Psychaos from this really fascinating compilation and you know just a groundbreaking release. So I will sign off here and present the full track without my yapping over it.
 
 And hope you'll enjoy it. And enjoyed this presentation once again. Mark DJ Solitare here, and here we go again with Psychaos "Soundbeams". Such an experience.
+
+## Notes from the Comments
+
+An early sample-free version of Intellect circulated as Syncon, with no other differences.

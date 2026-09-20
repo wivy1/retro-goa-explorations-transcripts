@@ -46,3 +46,9 @@ I'm sure this will happen at some time. So you've got this kind of singing, synt
 This is one of the. I mean, there's several tracks on here that I've played out, but this is one of the ones I regularly go back to, too, and much easier to mix when it's not on DAT. I've featured it in a couple of flows recently. I'll include one in the comments in the description on YouTube. But absolute masterpiece again. The entire album really needs to be heard over and over again. And what a great track to close that album.
 
 So I will sign off here and leave the whole track without commentary, so that you can enjoy it more fully and appreciate all this incredible layering and the musical content of this fantastic track, the Molecular Mix of "Loads of Flow" by Koxbox. Welcome to my world. Thanks for watching!
+
+## Notes from the Comments
+
+Koxbox used Pro Tools rather than Atari Cubase. Frédéric Holyszewski recalls Ian explaining that this was why their MIDI timing was so tight.
+
+Old Transwave tracks can show hundreds of tempo changes in Ableton Live, sometimes drifting by about 3 BPM across a track. Frédéric Holyszewski attributes this to the Atari MIDI clock used with Cubase; Mark also reports noticing drift in Traktor.

@@ -84,3 +84,13 @@ You can see Jun Sugawara from the Organix designer trio who were doing the artwo
 So there we go, absolutely monster track by Transwave, a brilliant production, really key in their evolution of what would become their part of their distinctive sound. Of course, all of these artists had different sounds and wrote music in different styles, right? Range of tempi, range of moods, from darker to light and twilight and all kinds of things. And I'm using twilight in the 1990s sense in terms of what you might play then, not this new subgenre of psychedelic music that people call Twilight, which, I'll be honest, I don't really hear as being Twilight in the way that I would associate it.
 
 But as another digression, just a really key track in the evolution of the Transwave sound that became so distinctive and made them one of the, you know, those really important flavors of the goa palette, in a sense. Those flavors of the goa palette innocence those all those unique colors that we had access to musically so thanks to Dado for sharing those amazing recollections and I will sign off here to leave you with the full track to enjoy without my blabbering over it so Mark DJ Solitare here, signing off for another week, and I'll leave you now to enjoy Transwave's "Robostyx".
+
+## Notes from the Comments
+
+Robostyx's distinctive sound depended on overloading the mixer. Frédéric Holyszewski later bought a Behringer MS-1 to recover it, but found the mixer overload essential and difficult to reproduce with plugins; he planned to get an old Mackie.
+
+Transwave deliberately modelled Robostyx on Total Eclipse's sound.
+
+Frédéric Holyszewski later worked with Serge Souque in The Good The Bad And The Ugly.
+
+Robostyx uses a sixteenth-note psytrance bassline.
