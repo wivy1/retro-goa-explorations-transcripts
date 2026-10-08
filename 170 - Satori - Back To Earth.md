@@ -16,7 +16,7 @@ So, I've shared before how, you know, the autumn of 1994 in October '94, I first
 
 And so by the time 1996 is, you know, on the calendar, it's hard to believe. I was just like, I need to get more involved, and I wanted to go to London. So I had been in Japan at that point for three years and a bit, and you know, could not get more working holiday visas. The fact that I even got three was kind of miraculous.
 
-So I decided I was going to leave, and spend some time in Vancouver. All of my family now left Montreal, where I grew up, and then I would go to London and you know just sort of see about getting more into this whole musical scene. So I was moving there first weekend of September in nineteen ninety-six. So, because I spent the time in Vancouver, and you know, was exposed to what passed for a nightclub scene and a musical scene here, which was very different, right?
+So I decided I was going to leave, and spend some time in Vancouver. All of my family now left Montreal, where I grew up, and then I would go to London and you know just sort of see about getting more into this whole musical scene. So I was moving there first weekend of September in 1996. So, because I spent the time in Vancouver, and you know, was exposed to what passed for a nightclub scene and a musical scene here, which was very different, right?
 
 It was very housey. There was nothing along these lines. I introduced a couple of local DJs to some of this music, and they were, you know, completely blown away. I remember putting on this track that I thought was a bit more approachable, and it was Eco, "Toxic Recall."
 
