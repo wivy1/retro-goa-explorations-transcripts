@@ -58,3 +58,7 @@ As I said, I played it, you know, twice in the last five, six years. I think it'
 ## Closing Comments
 
 So I am going to wrap this episode up. 174, you know, in thinking that now you know we're talking more than one track per episode. You know, we're approaching 200 tracks covered in this series. You know, we're getting up there, and there's just more and more and more that we can listen to. Just magical things. So I will sign off here. I just need to check the titles in a row, you know what the sequence is, and then I'll let you listen without my commentary. So I'm Mark DJ Solitare, wrapping up episode 174 of Retro Goa Explorations, and leaving you now with three tracks by the trio Ayahuasca, Joti Sidhu, Dino Psaras and Steve Ronan: "Heliotropic Twist", "Psychopharm" and "Propella".
+
+## Notes from the Comments
+
+Joti Sidhu mixed the DJ-mix CD of Distance to Goa 8.

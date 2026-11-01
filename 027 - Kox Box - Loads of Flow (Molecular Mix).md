@@ -52,3 +52,5 @@ So I will sign off here and leave the whole track without commentary, so that yo
 Koxbox used Pro Tools rather than Atari Cubase. Frédéric Holyszewski recalls Ian explaining that this was why their MIDI timing was so tight.
 
 Old Transwave tracks can show hundreds of tempo changes in Ableton Live, sometimes drifting by about 3 BPM across a track. Frédéric Holyszewski attributes this to the Atari MIDI clock used with Cubase; Mark also reports noticing drift in Traktor.
+
+Arcon is a collaboration between Frank'e Madsen of Koxbox and Nir Shoshani, also known as Hujaboy.
