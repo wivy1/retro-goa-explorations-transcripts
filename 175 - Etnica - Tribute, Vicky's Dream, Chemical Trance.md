@@ -108,3 +108,5 @@ So there we go. So I am going to sign off here and leave you with these three tr
 ## Notes from the Comments
 
 Fede at DAT Records, who transferred the original tapes, confirms that the original High Society LP and CD swapped the titles The Gili's Voyage (Ketu Remix) and Vicky's Dream. The DAT Records and Suntrip releases use the corrected titles, with the Ketu remix as track 3 and Vicky's Dream as track 4.
+
+Many sounds in Tribute come from the EMU Morpheus and its Z-Plane filters, while the opening helicopter sound is a frog sample layered with a sawtooth wave.
