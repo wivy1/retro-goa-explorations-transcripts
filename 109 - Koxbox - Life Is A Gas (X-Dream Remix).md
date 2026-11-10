@@ -53,7 +53,7 @@ How many voices? There's a lot of lifting quality to this, and then that cool so
 
 I mean, there was really nothing I'd heard like that. "Friagram", which we had last week, I mean, that was pretty. Nothing I'd heard like that. "Friagram", which we had last week, man, that was pretty messed up.
 
-This is just next level, right? They take that atonal alien voice stuff to a whole other level, and then X-Dream does, you know, has their way with it, with the incredible percussive elements, all the creative sounds, the different textures of the different voices, both the harmonic and non-harmonic, and all of that pitch bending and everything—it was just wild. And also those voices, I mean, tons of voices in the melodic shaping, as well as in the sort of again the non-melodic, that this sort of just really weirdly textured stuff. So you know, I got that CD single then, thanks to Ken.
+This is just next level, right? They take that atonal alien voice stuff to a whole other level, and then X-Dream does, you know, has their way with it, with the incredible percussive elements, all the creative sounds, the different textures of the different voices, both the harmonic and non-harmonic, and all of that pitch bending and everything - it was just wild. And also those voices, I mean, tons of voices in the melodic shaping, as well as in the sort of again the non-melodic, that this sort of just really weirdly textured stuff. So you know, I got that CD single then, thanks to Ken.
 
 Thanks Ken. In November '97, obviously started playing it right away. And I remember then in Vancouver when it was passing through before Tokyo. And as I mentioned, Solstice had their Sayonara party in Vancouver, and Chika was playing.
 

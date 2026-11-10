@@ -57,7 +57,7 @@ So Phreaky did, you know, they had their Tornado track, which I didn't cover in 
 
 This comp, by the way, was the last one that was produced by Simon Holtom, who did the previous two, and it was released in August '96. And starting in September '96, Twisted Records started releasing things, and Simon H has been the manager of that label since September '96, right? So he was the mastermind between everything that was going on at Dragon, you know, with everything that was going on at Dragonfly during that formative period with the Hallucinogen album and so on. So the first one at Dragonfly, and then you know, moving everything over to Twisted Records.
 
-So you know, they never—it's—it's the interesting thing in these original compilations. You know, they—they never put the name of the producer. You have, you know, the engineers. You have the people who wrote the tracks and so on, and all these thank yous. But you know, a little bit of that invisibility for who's actually responsible for the compilation.
+So you know, they never - it's - it's the interesting thing in these original compilations. You know, they - they never put the name of the producer. You have, you know, the engineers. You have the people who wrote the tracks and so on, and all these thank yous. But you know, a little bit of that invisibility for who's actually responsible for the compilation.
 
 So, hat TIP to Maestro Holton for this incredible third compilation on the Dragonfly label, and of course to the five musicians who put that phenomenal track together?
 

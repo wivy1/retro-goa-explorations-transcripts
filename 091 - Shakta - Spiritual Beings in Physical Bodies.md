@@ -41,7 +41,7 @@ Love the sample. Love the vibe. It's interesting because in terms of melodic rif
 
 We'll notice like some of the ones I featured recently as well. You're basically listening to parts of a tune, right? And like little melodic riffs, and there's this little note combination, and then there's that other note combination, and together they're making something. And again, that's that feeling of, you know, all together we are putting, you know, bringing our different pieces of the puzzle together, and then we create this unification on the dance floor.
 
-And the DJ does that with everybody there, and sort of the whole thing. This is like you know, the metaphysical thing of being spiritual beings in physical bodies—we're bringing different parts of the equation together. So, love this track. It is one of my favorites.
+And the DJ does that with everybody there, and sort of the whole thing. This is like you know, the metaphysical thing of being spiritual beings in physical bodies - we're bringing different parts of the equation together. So, love this track. It is one of my favorites.
 
 It's probably the main one that I play from that album. Was my introduction to Seb's work, I think, pretty much through Jeff. Just like meeting Seb was through Jeff. Seb, if you haven’t met him, I mean, he's just you know six feet of boundless enthusiasm.
 

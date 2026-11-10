@@ -33,7 +33,7 @@ And I think that's it. I'll be pointing out a sample, one particular sample that
 
 A movie. Something taken from a TV show or a movie. Notice that one, two, and three, four. Wonderful bounce, right? Even when the tracks get weird and twisted, there's this delightful bounce. And we get that very cool effect. That was just completely brand new, cutting edge, and we'd never heard anything like that before that time.
 
-And then, then maybe not. Maybe that's coming on the next round. It's always the exciting bit with his music—sort of never know when something's going to drop in. There we go.
+And then, then maybe not. Maybe that's coming on the next round. It's always the exciting bit with his music - sort of never know when something's going to drop in. There we go.
 
 So now we get like a little bit at a time when there was less of that Eastern influence in goa music. That term was being used a lot less. We still get it's beautiful, beautiful melody with that kind of sound. Notice the momentum, great voice, the momentum with the rhythm of that bassline.
 

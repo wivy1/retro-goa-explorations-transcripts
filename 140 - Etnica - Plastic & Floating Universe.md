@@ -21,7 +21,7 @@ And I remember that when Olli Wisdom played at Fuji in October 1995, he played o
 
 Now, I kind of forgot about these tracks for a while, to be honest. Probably because my CD single went missing at some point, crossing continents, and so when it was, you know, once I heard this prior to release, I was just like, "What is this magic?" You know, there was that beautiful opening, and then leading into "Plastic", which is just magnificent, and then seamlessly fused with "Floating Universe", such that I actually couldn't tell what was what. I had completely forgotten these tracks, and now when I listen to them unmixed, I'm sort of like, well, they're kind of begging for each other, you know. They're just such a beautiful seamless fit.
 
-So I thought for this episode, I would feature both of them. You know, Vimana has had lots of airtime, and you know, great track, really high energy. All of that. Love the spoken samples in there about our greatest spiritual leaders, but these tracks reach—you know—they—they—they—they reach deeper into the soul for me.
+So I thought for this episode, I would feature both of them. You know, Vimana has had lots of airtime, and you know, great track, really high energy. All of that. Love the spoken samples in there about our greatest spiritual leaders, but these tracks reach - you know - they - they - they - they reach deeper into the soul for me.
 
 And what's interesting is also the slower BPM. "Plastic" is one thirty to one thirty-one. My Traktor sort of thing was reading it like somewhere in between, and I was really surprised that "Floating Universe" was reading at around 135. Again, not like not right on, so it's kind of interesting, right? Things were a little looser and more analog those days. We're not just talking about the equipment, so it's these are slower. And here I am doing episode so 140, when 140 is kind of a one of the common BPMs from the time, and I'm doing two tracks that are slower, but so be it.
 
@@ -35,7 +35,7 @@ So let's give it a listen. "Plastic" by Etnica.
 
 ## Commentary and Analysis
 
-Okay, so we get this kind of interesting bouncing, you know, just Basic sounds, but they all start sounding like voices. Everything in here is going to sound like a voice from, you know, one of these guys. So that kind of—I mean, these synth sounds that really sound like utterances from some being from another dimension. There's the kick, very sneaky, sneaky slide. Sleaky, sneaky slide. Beautiful, rubbery stuff in the background. So very, you know, measured introduction of these items. You know, these different voices and sounds. There's the hi hats. Now we're starting to get more of a more propulsion in the rhythm, more that rapid pace.
+Okay, so we get this kind of interesting bouncing, you know, just Basic sounds, but they all start sounding like voices. Everything in here is going to sound like a voice from, you know, one of these guys. So that kind of - I mean, these synth sounds that really sound like utterances from some being from another dimension. There's the kick, very sneaky, sneaky slide. Sleaky, sneaky slide. Beautiful, rubbery stuff in the background. So very, you know, measured introduction of these items. You know, these different voices and sounds. There's the hi hats. Now we're starting to get more of a more propulsion in the rhythm, more that rapid pace.
 
 And then, so this you're really in full trance mantra mode here, right? The simplicity of those sounds, while the pace is picking up with other ones, just that repetition. So that other extra harmonic riff, that other another mantra voice, sort of joining the proceedings. It's really interesting having that extra kind of kick, that extra foundation to that other voice.
 
@@ -53,11 +53,11 @@ We get another round of it here, sort of again just that loop, that mantra going
 
 Like now, there's a key change. There's this other kind of rubbery bass. Then we get that other alien intergalactic. Get that other alien interjection. Just like what just happened, it just sort of went into this parallel dimension.
 
-So now the pattern shifts, and you know, really, in when you're in that state on the dance floor, the way these patterns shift—I mean, they all seem to contain some structure and message. Again, right? We're still with a key change. Right. It's full on, like extraterrestrial language here.
+So now the pattern shifts, and you know, really, in when you're in that state on the dance floor, the way these patterns shift - I mean, they all seem to contain some structure and message. Again, right? We're still with a key change. Right. It's full on, like extraterrestrial language here.
 
 And the tonality is less evident at this point. It's just in the rubbery bassline where we have that. Like whoa, what's going on over here. Some new harmonic directions. Getting that drum build up coming so we know something is coming.
 
-It's just incredible—the combination of the rhythmic pattern and those really different harmonies. Quite a melodic riff, as well as the sound, you know, the kind of nasal, piercing, interesting, insistent quality that it's got. I mean, it's quite an adventure, isn't it? An a slower adventure.
+It's just incredible - the combination of the rhythmic pattern and those really different harmonies. Quite a melodic riff, as well as the sound, you know, the kind of nasal, piercing, interesting, insistent quality that it's got. I mean, it's quite an adventure, isn't it? An a slower adventure.
 
 We do not hear a whole lot of this tempo with that kind of intensity these days. And I mean, it's not something that you can just easily throw in the middle of a set. It really has to be right track, right time, as which is what Oli always told me.
 
@@ -79,7 +79,7 @@ There's a lot in this that reminds me of "Starship 101"; I think it's "Starship 
 
 Then we get that up another octave. It's so interesting, right? Because it's like it's uplifting and celebratory in one way, but also quite emotional and anguished and plaintive in some way.
 
-I sort of feel the percussion building up in a way here as well. Just kind of dropped a little bit. So here, what a gorgeous riff. There's that build up, and then again, there's this kind of triumphant quality to it, but it's not fully resolved, right? Because there's still that—I don't know—still feels like that emotional angst on some level. A little bit of that mystery, I think of history of existence, really.
+I sort of feel the percussion building up in a way here as well. Just kind of dropped a little bit. So here, what a gorgeous riff. There's that build up, and then again, there's this kind of triumphant quality to it, but it's not fully resolved, right? Because there's still that - I don't know - still feels like that emotional angst on some level. A little bit of that mystery, I think of history of existence, really.
 
 Okay, then all that melodic stuff stops, and we've got that good old-fashioned sort of climbing and descending patterning. That one sort of little harmonic element, and then this. This is just in the Athens live, this is just off the charts. But this is one for me, one of the most beautiful melodic evolutions here.
 

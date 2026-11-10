@@ -25,7 +25,7 @@ He sadly passed away. We're just approaching the three-year anniversary of his d
 
 Now, a version of this track made it onto A CD compilation, a 3D Vision one. It is shorter, and when I scanned through it, I was like, "This is a completely different track." I mean, it's really like a very different mix. The one that's on vinyl seems to be harder to come by, and I actually had to do quite a lot of digging to find somebody who had a copy of it. So this has not circulated quite as much.
 
-And while, of course, I couldn't remember the details exactly of the track, you know, from that I heard in a car 27 years ago or whatever—I don't want to do the math—that you know, I remember the impression. And this is it. "This Is The End". It's really, this is really something.
+And while, of course, I couldn't remember the details exactly of the track, you know, from that I heard in a car 27 years ago or whatever - I don't want to do the math - that you know, I remember the impression. And this is it. "This Is The End". It's really, this is really something.
 
 So I think with all of that, we should just give it a listen, and go through what's in this beautiful track together, and then I'll let you listen to it without my commentary. So here we go, by Wizzy Noise. "This Is The End".
 

@@ -49,9 +49,9 @@ And now we're going to get all the big stuff coming back. Nice drum buildup. Som
 
 ## Observations and Closing Comments
 
-I mean, hey, yeah, you know they are both great, but there's that extra content that's sort of almost pyramid-like, sort of climbing, you know, this mystical harmony, sort of where he just adds that extra bit there. That for me is just, you know, that's for me it pulls on multiple levels, and I again really like the more streamlined sonorities in this one, but you know, hey, the gritty original—it's brilliant for sure.
+I mean, hey, yeah, you know they are both great, but there's that extra content that's sort of almost pyramid-like, sort of climbing, you know, this mystical harmony, sort of where he just adds that extra bit there. That for me is just, you know, that's for me it pulls on multiple levels, and I again really like the more streamlined sonorities in this one, but you know, hey, the gritty original - it's brilliant for sure.
 
-So as I said, the place exploded when I played that one at ZNA. I'm just gonna put a little clip here just so you can see a little bit of the mayhem. I mean, hey, it's a pretty kicking track, and it is really interesting. I think you know that dropping the speed down sometimes, and if you have a track that builds up in intensity but the BPM is lower, it creates this tension that needs to come out and express. And you know, of course, the musical content has to be there. It's not just—it's never just BPM. It's really all multiple factors simultaneously.
+So as I said, the place exploded when I played that one at ZNA. I'm just gonna put a little clip here just so you can see a little bit of the mayhem. I mean, hey, it's a pretty kicking track, and it is really interesting. I think you know that dropping the speed down sometimes, and if you have a track that builds up in intensity but the BPM is lower, it creates this tension that needs to come out and express. And you know, of course, the musical content has to be there. It's not just - it's never just BPM. It's really all multiple factors simultaneously.
 
 So, so there we go. I'm going to sign off and leave you with both versions of that track.
 

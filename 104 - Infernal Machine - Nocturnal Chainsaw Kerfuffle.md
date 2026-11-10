@@ -31,7 +31,7 @@ So I think with that we'll get started. Give this wonderful track a listen, and 
 
 ## Commentary and Analysis
 
-So let's give a listen to "Nocturnal Chainsaw Kerfuffle" by the Infernal Machine. Love this beautiful lyrical introduction. This is great for mixing as well, right? Because you've got that—you're able to sort of overlay this over something else, another track.
+So let's give a listen to "Nocturnal Chainsaw Kerfuffle" by the Infernal Machine. Love this beautiful lyrical introduction. This is great for mixing as well, right? Because you've got that - you're able to sort of overlay this over something else, another track.
 
 So you can hear the chainsaw noises there. Then this bassline. And then this bass line that comes in, amazing bounce, and again this is where the creativity is really required nowadays, people spend time writing a melody, spend time writing a bass line and then we get that kick and that slam and then syncopated, sort of a hi-hat kind of sound. Notice all the different rhythmic elements happening. That bass line just keeps going, right? So it's a melody that keeps things going. Going, then this riff, then and we, that two note pattern at the top is going to be more brought out more shortly. So right now it's just kind of implied.
 

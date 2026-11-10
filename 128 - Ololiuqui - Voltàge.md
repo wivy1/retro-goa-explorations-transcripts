@@ -47,7 +47,7 @@ Amazing range of sounds, including that. Now we don't have those two notes above
 
 This really sounds like a voice as well, really coming from another dimension, and then that. Wolf cry in the background. Just love how you know all these things that we've heard before are coming in different ways, and just the whole storyline is amazing.
 
-Now a tighter loop here. Just that broody, aerated sound. Hear that murmuring as well. Just shift it over there. Just pay attention. These voices—they really go through little shifts. It's quite amazing. The rhythmic stuff is incredible.
+Now a tighter loop here. Just that broody, aerated sound. Hear that murmuring as well. Just shift it over there. Just pay attention. These voices - they really go through little shifts. It's quite amazing. The rhythmic stuff is incredible.
 
 Slightly different voiced voicing now for that descending pattern. The bounce right so it's all broody and mysterious but it's kind of also got this you know kind of cheery thing going on it's really quixotic and quirky ah, now we get this voice coming back.
 

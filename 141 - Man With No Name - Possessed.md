@@ -33,7 +33,7 @@ So it seemed to me, that folks who were in the scene for quite a while were jade
 
 And I remember some folks who were there after sunrise on the side who I had seen, I know who were involved with the return to the source, and they were just speechless. They were just their jaws dropping and looking at this nature and looking at this, and they're like, "Wow, this is what it can be like." I'm like, "Yeah, this is what I've been trying to say."
 
-So this was just—it was absolutely incredible, and it was muddy in the morning. It was muddy at night, of course, when it was raining, but the mud was there, and people are going off. It was just fantastic, and so Mark Allen, of Whom I managed to get a photo on that occasion. I'm not sure how I was able to focus with an old school regular camera, but here we go.
+So this was just - it was absolutely incredible, and it was muddy in the morning. It was muddy at night, of course, when it was raining, but the mud was there, and people are going off. It was just fantastic, and so Mark Allen, of Whom I managed to get a photo on that occasion. I'm not sure how I was able to focus with an old school regular camera, but here we go.
 
 He plays this, the last track of the party, "Possessed" by Man With No Name, and I mean, you know, this and "Own the World", but it's sort of similar in vibe in terms of this, you know, sense of you know we are the custodians of the planet, you know that we are, and we're reawakening to sort of our roots and connection to nature and connection to the beyond, and that's what this electronic music seemed to be, you know, being beamed down, and so it was this, you know, with Mount Fuji being this real power source, kind of location, it was incredible, and so he plays this to close the party.
 
@@ -55,7 +55,7 @@ Beautiful, simple slide down. All of his sounds are so exquisite, and the pacing
 
 That extra little bit there that one of that other voice that the voices these little riffs seem to come out of other riffs that's magnificent just you know, really exclamatory, celebratory. Haven't said that in a while, right? Beautiful anthem, right? It's really catchy. It's really straightforward. Really has a beautiful hook . Love those sounds.
 
-And again, the interplay between all of the voices—they all sound like voices. And that upper register, and then this slide is going to come up. Then the answer. Yeah, that four-time repetition. That was the third. And the pace changes a bit.
+And again, the interplay between all of the voices - they all sound like voices. And that upper register, and then this slide is going to come up. Then the answer. Yeah, that four-time repetition. That was the third. And the pace changes a bit.
 
 The storytelling, I mean, really tracks were just so beautifully structured back then, and especially with artists of Martin's caliber. And then, and again, voice-like. Very different on a big system. Just the difference in texture, right, between all of the voices, and they all interplay, whether on different frequencies or sort of a similar range.
 

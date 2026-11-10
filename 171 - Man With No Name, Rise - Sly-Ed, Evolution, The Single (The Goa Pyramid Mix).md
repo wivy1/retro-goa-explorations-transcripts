@@ -59,7 +59,7 @@ So again, we have one of those chorus voices. This one's a little, not quite as 
 
 ## Observations
 
-I mean, there's so much that's going on. It still blows my mind because you know all of the riffs, they're very. It's like they're very approachable, right? Everything melodic is hummable, singable. It's got a rhythmic catch, catchy element to it. Then there's the other sounds in there, where you know there's a simple up and down, or simple sort of slide through, or you know these different elements, and the storytelling—the way the kick will drop out, or some of the elements will drop out, and you know one continues, and then it you know reaches a new stage in the storytelling—absolutely incredible, and sounds beautiful here, sounds beautiful on your home system, and it's going to sound absolutely rocking on a big system.
+I mean, there's so much that's going on. It still blows my mind because you know all of the riffs, they're very. It's like they're very approachable, right? Everything melodic is hummable, singable. It's got a rhythmic catch, catchy element to it. Then there's the other sounds in there, where you know there's a simple up and down, or simple sort of slide through, or you know these different elements, and the storytelling - the way the kick will drop out, or some of the elements will drop out, and you know one continues, and then it you know reaches a new stage in the storytelling - absolutely incredible, and sounds beautiful here, sounds beautiful on your home system, and it's going to sound absolutely rocking on a big system.
 
 ## Closing Comments
 

@@ -17,7 +17,7 @@ So this one came out on, and you know, Psychic Deli, A.K.A. you know, tied in wi
 
 So now Ott did produce and consent to the release of another track that showed up in I think it was Unusual Suspects two on Twisted records, and that was due to me. I came across a CD at Maestro Posford's place in might have been 2004, and I just remember there were three tracks, and it said they were by Ott. And I listened to them; these are unbelievable. Why are these not out? And I was writing press releases for Twisted then, as I am now, and was sent a demo possibility of the Unusual Suspects, Volume Two, lineup, and I said, "What about a track by Ott? Wouldn't that be amazing? I mean, I heard there's three amazing ones." And so Simon Holton, who's running the show, went and he chose this one.
 
-So Hikikomori was—I can't even remember if it's the project name or the track name—but there we go. Anyway, that one was showed up on a Twisted compilation. I think it's a banger. I think all of the all of them are. The other two, which I don't have, incredible. And Ott doesn't like any of them. He consented to that release at least, though.
+So Hikikomori was - I can't even remember if it's the project name or the track name - but there we go. Anyway, that one was showed up on a Twisted compilation. I think it's a banger. I think all of the all of them are. The other two, which I don't have, incredible. And Ott doesn't like any of them. He consented to that release at least, though.
 
 So thank you for that, Ott, and also, thank you for producing this fantastic music that you don't like. And I'm really sorry, obviously, that came out in such a nefarious way.
 

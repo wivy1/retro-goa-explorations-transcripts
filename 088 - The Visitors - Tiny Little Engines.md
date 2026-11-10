@@ -37,7 +37,7 @@ So, as I said, there is a lot to this track. I don't know. I certainly can't spe
 
 So right away, starting off with this radio noise, this is like for me that image that I had of you know like the DJ sort of tuning into intergalactic stations. Love that rhythm, noise, and then it just breaks into. There's those cool alien voices, as well as tribal voices, but just that beautiful balance and the notes. The minor second is the primary interval throughout the track. There's a little bit more going on here too. That sort of zap sound.
 
-Now, again, the combination of notes for me—it sounds really like an ancient tribal melody that we're sort of remembering from previous generations, and it opens up. For me, the whole track is like tribal harmonies and melodies that open up portals to cosmic communication, and then here. Like all of a sudden, it's like almost like there's this interference, or there's this tension of communication that needs to happen for the portal to open.
+Now, again, the combination of notes for me - it sounds really like an ancient tribal melody that we're sort of remembering from previous generations, and it opens up. For me, the whole track is like tribal harmonies and melodies that open up portals to cosmic communication, and then here. Like all of a sudden, it's like almost like there's this interference, or there's this tension of communication that needs to happen for the portal to open.
 
 Incredible bounce! I mean, it's uplifting, but it's also really, really deep. There's the repetition of that mantra, regularity of that rhythm, and that long drone just starts to fade a little bit there, and that punctuated voice, then all the cyber. Then there's higher cyber electric sounds. Some of those whooshes that come in the track. I said, and then the voice-like inflection here of that.
 
@@ -51,7 +51,7 @@ So it's like, okay, now this melody's opening up after we've done the groundwork
 
 And then this great big wash is gonna come through after the cyber electric noise. Notice the communication, the layering and the buildup, and that anguish and exclamation starts repeating. It's that drone-like effect as it keeps repeating. Drum build-up. It's like they're approaching the end of the, you know, this cataclysmic explosion that goes up.
 
-Cosmic radio station now, like, this transmission is ending. Voices. I mean, you know, that's not a piece of music. I mean, that's just—it's an experience. It's this transcendental combination and arrangement of sounds that absolutely—I mean, this is what music is supposed to be—just opens up a portal to consciousness, to a certain way of seeing and perceiving and sensing reality.
+Cosmic radio station now, like, this transmission is ending. Voices. I mean, you know, that's not a piece of music. I mean, that's just - it's an experience. It's this transcendental combination and arrangement of sounds that absolutely - I mean, this is what music is supposed to be - just opens up a portal to consciousness, to a certain way of seeing and perceiving and sensing reality.
 
 ## Observations and Closing Comments
 

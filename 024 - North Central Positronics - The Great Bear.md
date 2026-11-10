@@ -25,7 +25,7 @@ And I knew I wanted this track. And when I was leaving Japan for the last time f
 
 Now I tried seeing if Simon had a DAT that was usable, and unfortunately, the only copy that I could find in his collection was seriously distorted. And so, when I managed to get this finally released on, there we go, on this Mind Rewind Charity compilation where the profits went to an orphanage in Goa. We had to use a vinyl rip, and that's what we're going to listen to today.
 
-So, you know, this track ticks off a lot of boxes in terms of what it is that I love in this whole scene. It's got a variety of moods. It's got really hummable, singable riffs, and they all play together beautifully. You know, they can all be layered there, and it's just gorgeous—the interplay between the voices—and really, the melodies are really beautiful. They're beautiful, singable, and I think the storyline as well is marvelous.
+So, you know, this track ticks off a lot of boxes in terms of what it is that I love in this whole scene. It's got a variety of moods. It's got really hummable, singable riffs, and they all play together beautifully. You know, they can all be layered there, and it's just gorgeous - the interplay between the voices - and really, the melodies are really beautiful. They're beautiful, singable, and I think the storyline as well is marvelous.
 
 Simon is a little less enthused, and when I shared this on Facebook, you can see the comment here that he wrote about his thoughts on the track. And I respectfully disagree. I think this is a marvelous, marvelous track.
 

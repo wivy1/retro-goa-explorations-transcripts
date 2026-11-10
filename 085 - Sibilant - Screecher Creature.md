@@ -57,7 +57,7 @@ pieces. And I love the accenting, the fact that a lot of things are not accented
 
 ## Observations and Closing Comments
 
-I mean, so you can imagine—I was listening to this mixtape. I was—I was just still curious. I was, you know, wanting new music and wanting new adventurous things, and you know, so coming back from this great gig in Paris, and then I hear this. Because I was like, this is just another kind of music.
+I mean, so you can imagine - I was listening to this mixtape. I was - I was just still curious. I was, you know, wanting new music and wanting new adventurous things, and you know, so coming back from this great gig in Paris, and then I hear this. Because I was like, this is just another kind of music.
 
 This is amazing, you know. And I was so dismayed, you know, especially after having been in Canada, you know, the summer before. Each summer I would go back to Canada and I'd just be like, "What are people listening to? You know, what is this rubbish?
 

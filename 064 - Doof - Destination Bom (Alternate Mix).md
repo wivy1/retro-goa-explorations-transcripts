@@ -65,7 +65,7 @@ Now, let it be said, I've said before, and I'll say it again. Now, not every alt
 
 So we are going to listen to the original file that he shared with me, unmastered, from the DAT transfer that he sent on December second, 2013. I mean, I looked it up. That's I have the email. That's why I remember the date. But it's also the date that my favorite pianist died. The one on whom I did the most research in my classical work of literally excavating lost recordings. He's a pianist who recorded three hours. Another three hours showed up in the three decades after his death, and I discovered another three hours through my research pre-internet days. So, similar work, different field, but all the same thing. What's hiding? What's there waiting to be discovered? Which I think is kind of what this scene is like. And then, how much time does it necessarily take? That was sixteen years and three months, or four, from me playing that at Tsuyoshi's place, August 2, 1997 to December 2, 2013, and then we got this out 2014, I believe.
 
-So here we go with all of that backstory, and I mean, let's face it—it's quite a story, isn't it? Let's listen to the gorgeous "Destination Bom" alternate mix by Doof.
+So here we go with all of that backstory, and I mean, let's face it - it's quite a story, isn't it? Let's listen to the gorgeous "Destination Bom" alternate mix by Doof.
 
 ## Commentary and Analysis
 

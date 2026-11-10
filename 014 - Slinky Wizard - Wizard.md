@@ -59,7 +59,7 @@ Again, and it's got that intensity, that kind of dramatic, exclamatory, celebrat
 
 Things start simmering and calming down here. Still hear Dorothy's voice in the background. It just fades out. I mean, truly, truly incredible, incredible track.
 
-Um, 136 BPM, folks. I mean, that's a pretty massive, um, massive production. Lots of drama, lots of tension, Lots of different emotions, but the beautiful sounds and the beautiful melodies and chords and progressions—they're just exquisite. Now, something that's been the was for many years the subject of rumor and intrigue was this story of a long-lost Alternate mix of this track.
+Um, 136 BPM, folks. I mean, that's a pretty massive, um, massive production. Lots of drama, lots of tension, Lots of different emotions, but the beautiful sounds and the beautiful melodies and chords and progressions - they're just exquisite. Now, something that's been the was for many years the subject of rumor and intrigue was this story of a long-lost Alternate mix of this track.
 
 Now, what used to happen, since as I said, you know, everything was looped. The way what they would do is, you know, they would do sort of the main mix, but then quite often they would do what was like a live mix, what was often done at live sets, and certainly Simon was a master at doing this, where he had A 32-channel mixer and different lines looped in different channels, and he just do the arrangement on the fly. And so, you know, there's all kinds of alternate mixes like this that have been released. There's, you know, TIP's “Noises From The Darkness” that Simon did one of.
 
