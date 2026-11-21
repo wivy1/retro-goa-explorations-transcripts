@@ -18,9 +18,9 @@ This archive was created because DJ Solitare's direct involvement in the 1990s g
 6. Format the transcribed text (punctuation, capitalization, sentence boundaries, and topic-based paragraphs) using Qwen3.6 27B (4-bit Q4_K_M quantization), running locally through Ollama.
 7. Extract all YouTube comments with yt-dlp into JSON. 
 
-### LLM-guided Cleanup
+### Cleanup
 
-8. Provide GPT 6 Pro with the transcript, comments, and a specialist knowledge-base containing verified names, aliases, track titles, equipment names, terminology, and previous corrections.
+8. Compile transcript, comments, and a specialist knowledge-base containing verified names, aliases, track titles, equipment names, terminology, and previous corrections.
 9. Check names, titles, equipment, and terminology against the knowledge-base and surrounding discussion.
 10. Research suspected phonetic errors and unresolved references using official artist/label catalogs, Bandcamp, Discogs, and specialist archives such as goatrance.xyz. *(Examples include “Roger Ram” → “Raja Ram” and “Spangle” → “Shpongle.”)*
 11. Verify the specific release or mix before correcting titles, preserving intentional spelling variations.
